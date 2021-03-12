@@ -1,12 +1,11 @@
-### sat 
-
+### sat
 Four steps past the school gates, Midoriya suddenly came to a stop. Whipping around suddenly, he stared at the blond behind him.
 "You're coming too?"
 And Midoriya, who never seemed to care or even notice who or what came with them, asked Yagi with so much incredulous shock that the blond flinched backwards. 
 "I uh... Yes?"
 Midoriya stared at him for a moment and then at himself. He hesitated, and then then started to head back to the school.
 "...What?" 
-The rest of the patrol group stood in shared shock. Do they just, keep moving? Like Midoriya did? Did they wait? Groups that went on their own usually left by themselves, whenever they felt like it, so the remains were poele that liked traveling with Midoriya (regardless if the young man wanted him or not). 
+The rest of the patrol group stood in shared shock. Do they just, keep moving? Like Midoriya did? Did they wait? Groups that went on their own usually left by themselves, whenever they felt like it, so the remains were people that liked traveling with Midoriya (regardless if the young man wanted him or not). 
 "Are... Are you kidding me?" Aizawa hissed out, "That's it? That's all we had to do to keep him here?"
 "Uh, is patrol cancelled?" Hojo asked, "I... I really don't want to explain this to Chisaki-san. Should we just leave anyways?"
 In their confusion and with limited information, they stood there and waited instead.
