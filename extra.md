@@ -1,11 +1,38 @@
-### sat
+### returning a gift
+
+"But you're not going to betray us, right Izuku?"
+The question was simple. His next words would effectively decide how the rest of their night will go. Depending on what he says and does, it's likely that this whole thing will go belly up in the future. He knew what he had to say to difuse the situation.
+He knew.
+"Toga-chan," he said, and going against his best plans, spoke honestly. "What does it mean, to betray you?" he asked. His expression scrunched, as though he was in an insufferable amount of pain. "whatever it is, it's fine. I won't fight you."
+The blond stared at him for a moment.
+"Likewise, if you decide to betray me or kill me or whatever, I won't blame you."
+"...Because you know me?"
+He smiled back. He wasn't a stranger to lying to get what he wanted. And Midoriya knew what he wanted for a very long time. Lying wasn't the worst thing he has done, or will ever do. Lying to someone who looked at him so earnestly wasn't hard.
+"Because I trust you."
+That's why,when Toga understood that he lied to her in this moment, he hoped that she would be betrayed. She would feel betrayed and she would come for revenge. Toga wasn't someone that left grudges go so easily, you see. Midoriya knew.
+Midoriya knew, and could not wait to die by her hand.
+
+### gacha hell
+
+((better make a spreadsheet where all the charactrs & rarity & stats because why not))
+
+A hand grabbed his wrist, and without meaning to, Midoriya squeaked. Immediately, the man who pulled him stopped and he covered his mouth with his hand.
+"...Was my grip too strong?" Dabi said, and his concern would have been much more believable, if it wasn't for that damned smile curling on his face. He leaned in even closer, "So sorry."
+Midoriya, who could feel his unapologtic words blow 
+
+### sat 
+
+
+
+<-> 
+
 Four steps past the school gates, Midoriya suddenly came to a stop. Whipping around suddenly, he stared at the blond behind him.
 "You're coming too?"
 And Midoriya, who never seemed to care or even notice who or what came with them, asked Yagi with so much incredulous shock that the blond flinched backwards. 
 "I uh... Yes?"
 Midoriya stared at him for a moment and then at himself. He hesitated, and then then started to head back to the school.
 "...What?" 
-The rest of the patrol group stood in shared shock. Do they just, keep moving? Like Midoriya did? Did they wait? Groups that went on their own usually left by themselves, whenever they felt like it, so the remains were people that liked traveling with Midoriya (regardless if the young man wanted him or not). 
+The rest of the patrol group stood in shared shock. Do they just, keep moving? Like Midoriya did? Did they wait? Groups that went on their own usually left by themselves, whenever they felt like it, so the remains were poele that liked traveling with Midoriya (regardless if the young man wanted him or not). 
 "Are... Are you kidding me?" Aizawa hissed out, "That's it? That's all we had to do to keep him here?"
 "Uh, is patrol cancelled?" Hojo asked, "I... I really don't want to explain this to Chisaki-san. Should we just leave anyways?"
 In their confusion and with limited information, they stood there and waited instead.
@@ -34,6 +61,7 @@ Yagi's hand trembled. Indeed, some time ago, he put people like Midoriya down fo
 However, even though he meant well, and he was doing the man a kindness, Yagi couldn't help the incredulous feeling inside of him. Him? He needed to be looked after? The thought felt putrid. he was well-bodied. He didn't need to be looked after. Why would he need that? He was strong and powerful, even without a quirk. He-
 The look in Midoriya's eyes, as he washed the blood off his hands in a bucket of bleach, stopped his words from escaping from his mouth. 
 
+
 ### Fgo? Housamo? au - > 
 
 [ 
@@ -46,7 +74,3 @@ The look in Midoriya's eyes, as he washed the blood off his hands in a bucket of
 All the windows in the corridor, in that instant, shattered. Midoriya's back hit the wall of the hallway as several other students screamed and shouted in their surprise. In the glass shards, he could see the sinister smile stretch acrpss its face-
 "Midoriya?! Again?"
 And trembling from a nightmare he couldn't wake up from, Midoriya could ask the same damn thing.
-
-<->
-
-
