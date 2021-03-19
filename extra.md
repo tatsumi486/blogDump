@@ -12,19 +12,75 @@ He smiled back. He wasn't a stranger to lying to get what he wanted. And Midoriy
 That's why,when Toga understood that he lied to her in this moment, he hoped that she would be betrayed. She would feel betrayed and she would come for revenge. Toga wasn't someone that left grudges go so easily, you see. Midoriya knew.
 Midoriya knew, and could not wait to die by her hand.
 
+-
+
+The thought intruded in his head again.
+If he just laid here, didn't do anything, didn't fight it, just stopped everyhting, it would be over. He would die. No more tomorrow. No more fighting and no more killing. The heroes that he loved and idolized as a child wouldn't disappoint him anymore. The people that he loved and cared about wouldn't need to get injured for him anymore. 
+
+rh-mariadb103-mariadb.x86_64 (edited) 
+setsebool -P httpd_can_network_connect_db=on
+
 ### gacha hell
 
 ((better make a spreadsheet where all the charactrs & rarity & stats because why not))
 
-A hand grabbed his wrist, and without meaning to, Midoriya squeaked. Immediately, the man who pulled him stopped and he covered his mouth with his hand.
-"...Was my grip too strong?" Dabi said, and his concern would have been much more believable, if it wasn't for that damned smile curling on his face. He leaned in even closer, "So sorry."
-Midoriya, who could feel his unapologtic words blow 
+A hand grabbed his wrist, and without meaning to, Midoriya squeaked. Immediately, the man who pulled him stopped and he leaned in closer instead. 
+"...Was my grip too strong?" Dabi said, and his concern would have been much more believable, if it wasn't for that damned smile curling on his face. He leaned in even closer, his lips brushing past his cheek with a, "So sorry."
+Midoriya, who could feel his unapologtic words blow across his hot face, spluttered back.
+""
+
+
+
+### apoc
+
+"I uh... I thought about it. What you said."
+Toga stared at Uraraka, the uncertain smile on her face and a broken two-by-four board in her hand. The blood splattered on her, coupled with the sight of her ripped sleeves and a whirlwind-weathered kind of hairstyle, she looked like a far-cry from the bubbly girl who looked so safely tucked away on base. 
+"About... About how not everyone was born with parents who loved their kids and wanted to protect them, even if it meant that they died. About that. I thought about that after you said it."
+She turned to Toga.
+"And because my parents died to protect me, because they loved me, I think you're missing a piece to your logic." She gave her a wide grin, looking more beautiful than anything Toga had ever laid eyes on. She laughed a little, not at all hysteric even though there was a dead body between them. "We got each other now, right?"
+Toga stared, wide-eyed and at a loss for words. It would have been easier if Uraraka had met her and gotten familiar and then left because she didn't like Toga like everyone else Toga's ever met and known. It would have been easier, and Toga wouldn't have cared that there was another person in the world that didn't like her.
+But someone that knew her and wanted to protect her? Someone that knew her and would choose to stay?
+Someone, who wanted to be a hero and had experienced joys and the brighter side of society that was made for 'right' people and not people like her who were fucked up in the head and deemed broken? She didn't get it. 
+If heroes were really like her, if there were really heroes like her, why did she only meet one now? 
+Uraraka's expression softened as she kneeled down next to her.
+"It's okay," she said, placing her hand on Toga's back. "I'll be here now."
+But Toga was Toga because she never had anything to lose. She knew, saw, killed, people who had lost everything. Toga didn't want to be someone like that. Looking at Uraraka, Toga didn't think she could ever be smile like that after losing everything worth loving.
+She didn't think she would ever smile again, ever love again, if she lost her home.
+
+<->
+
+Deku was sitting up when Hawks came in. Even htough he was already told that he was okay, seeing it for himself like this brought more comfort to himself.
+"Yo, can I come in?"
+The young man nodded his head. 
+"How you feeling?" he asked. 
+"How's everyone else?"
+The blond paused momentarily, an exaperated huff escaping his lips.
+"You were bleeding from your head, and unresponsive like hell," the older man said, "And sleeping for four hours. But oyu're going to ask about the others?"
+Deku's eyebrows furrowed, clearly not see what was wrong with the situation.
+"...They're fine. All six of us came back."
+"...Six?"
+The blond nodded, "Six. You, me, Best Jeanist-san, Gang Orca-san, Shoji-kun, and Jiro-chan."
+"Seven," Deku argued back, eyebrows pinched. "There were seven of us."
+The blond stared at him for a second longer before he ran for the window. 
+"I'll check. Stay here," he said, throwing the window open and launching out of it. As soon as he left, Deku started to get up. His body ached, but he didn't let it stop him. 
+-
+A few moments later, there was a loud, frantic knocking on his door. 
+"It's Sakamata, I'm coming in," he said as he opened the door. "Deku, Hawks just left to check. Jiro's with him..." he trailed off, eyes narrowing at the state of Deku. "...Shouldn't you still be resting"
+In Sakamata's hand, the walkie came to life, cutting their conversation short.
+"Jiro and Hawks, reporting in. We're at location," Jiro's voice carried throgh the walkie. "Nothing more than a few rodents so far." 
+Deku  
+
+<->
+
+Deku was staring at the wall again. Mina tilted her head to the side, looking to what he was staring at, the patch of white in the corner of room, and then back to him.
+"Something interesting there?" she asked. Maybe he was being forced to keep himself awake or something, so she should just leave and let him rest.
+"...I can't hear you," he called out. 
+Clearly not expecting an answer like that, her head snapped over to him. She watched as green eyes narrowed at the patch on the wall.
+"I... I'll call Chisaki-"
+"Speak up," he called out, cutting her off. 
+
 
 ### sat 
-
-
-
-<-> 
 
 Four steps past the school gates, Midoriya suddenly came to a stop. Whipping around suddenly, he stared at the blond behind him.
 "You're coming too?"
