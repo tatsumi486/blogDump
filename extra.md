@@ -3,7 +3,8 @@
 "Are you stupid? Of course this isn't illegal," aniki said, his voice barely louder than the crackle of fire, "since we didn't get caught."
 Midoriya felt cold. 
 
-<->
+--- 
+
 
 "They don't like me because I'm young," he explained. "So everything that they say is all 'you don't have any sense of respect or dignity,' and well, they're not wrong." Midoriya shrugged, "But dignity and respect won't fill my stomach."
 He gave a smile, sharp like a knife, as he spun a pen in his hand.
@@ -12,7 +13,7 @@ He pushed the bag into the water.
 "Until then, Kawasaki-san. I won't ever forget what you taught me."
 In the dark of the night, the only light visible was when Midoriya lit his cigarette. A small bead of red light framed by the shadows came when he inhaled. A small light, but the only one anyone would lit for this man.
 
-<->
+---
 
 Leaning against the wall, Midoriya placed his hand onver his eyes in shock. He could hardly believe it. He wasn't crying. All this time, and he wasn't crying. Was he finally out? Was emptahy something that could be wrung out of him like people squeeze water out of an old rag?
 His mother's death was modest but beautiful. A photo of when she was vibrant was framed, decorated by flowers of every color, as though the palette from the petals would replace the fact that only Izuku was here.
@@ -21,15 +22,7 @@ Her son, the only person that attended her quiet service, did not cry at her fun
 Her son, the only person who actually loved her as much as he was loved, found comfort in her death. Since she was dead, those damn hospital bills would finally end. He would inherit all that insurance money and everything that was left to her by her parents, and he would finally be out of this awful debt. He could run away from the yakuza, maybe from the country, and figure out what a quirkless person could do someplace that he defame. 
 In that moment, he understood what All Might meant by the fact that he could never become a hero.
 
-<->
-
-But Toga wouldn't know. There was so many people in the world that she thought was beautiful. People that dazzled in font of her before their life was existinguished. People were truly like stars, limitless in numbers, bright and dazzling, and the rest of the world would only learn that they were gone long after their death. 
-It was sad, in a really beautiful and poetic way. As long as they could be framed and stained by that beautiful shade of red, Toga thought that she could fall in love with anyone.
-It was okay, because she knew that she wasn't right in the head. Or right enough for society. And she didn't really care about that anymore. She didn't want to be someone she wasn't anymore. Even if the whole world lied to her all the time, she didn't have to. Because it was'nt like she fit into that perfect frame of a Himiko's Daughter anyways.
--
-But maybe she was wrong. 
-
-<->
+---
 
 "No, no," Midoriya shook his head, a laugh playing on his lips, "I'd make a terrible villain."
 "Oh?" Giran grinned back, because it was polite where he was from.
@@ -41,8 +34,15 @@ Midoriya, who killed people and tortured people, could smile like he was a civil
 "And that includes working in a yakuza?"
 "Being in debt is a totally normal thing for law-abiding citizens. I would know."
 
+---
 
-<->
+But Toga wouldn't know. There was so many people in the world that she thought was beautiful. People that dazzled in font of her before their life was existinguished. People were truly like stars, limitless in numbers, bright and dazzling, and the rest of the world would only learn that they were gone long after their death. 
+It was sad, in a really beautiful and poetic way. As long as they could be framed and stained by that beautiful shade of red, Toga thought that she could fall in love with anyone.
+It was okay, because she knew that she wasn't right in the head. Or right enough for society. And she didn't really care about that anymore. She didn't want to be someone she wasn't anymore. Even if the whole world lied to her all the time, she didn't have to. Because it was'nt like she fit into that perfect frame of a Himiko's Daughter anyways.
+
+But maybe she was wrong.
+
+---
 
 "Do you remember?" Dabi asked, "When you asked me what I liked in the world?"
 Midoriya furrowed his brows, not because he didn't remember, but because he confused why Dabi was bringing it up as they ate instant ramen in the office at three am. Or maybe he was shocked that Dabi had remembered at all.
@@ -60,7 +60,7 @@ The last of his chuckles felt like the last sparks at the bottom of a fire, and 
 "That's cheap," Midoriya huffed. His eyes trailed from Dabi to his ramen and then back again. Dabi's insufferable gin could still be seen from the corners of his face. 
 And Dabi, satisfied that Midoriya would be thinking soley of him for some time, thought that their instant meal was even better than usual. 
 
-<->
+---
 
 "And two eggs for him," Twice said, pointing to Dabi.
 Dabi watched the ramenstand owner scowl, but do just that. How come all the standowners that they go to are all old assholes? As curious as it was, he supposed that Midoriya just attrached that kind of energy. More importantly, he tilted his head to stare at the blond he came in with.
@@ -75,7 +75,7 @@ But they've been together for too long after all, because Twice pointed at laugh
 Dabi scowled harder, ready to kick some sense into Twice, but remembering where they were, restrained himself. 
 He'll trash Twice later.
 
-<->
+---
 
 "You still like hard-boiled eggs in your ramen?" Natsuo asked, short of amazed as his eyes stared at the ramen.
 "Don't think too hard about it," Dabi said. After a second, he sighed, "And for a while, I really hated it."
@@ -97,10 +97,6 @@ With a long-suffered sigh from Midoriya, another egg was added to the order.
 Midoriya rolled his eyes, but didn't say anything more.
 And Natsuo wondered when they would remember that he was here. He thought it was incredibly telling, that he didn't even realize how tense Dabi was until Midoriya. He wondered if, he was born to a family made of love and not ambition, he would understand what it was like. 
 
-<->
-
-
-
 ### sat
 
 Fuck Spring. Fuck Fall. Just fuck everyday, but those two seasons in particular. 
@@ -120,7 +116,13 @@ The door slid open, and there was Nighteye.
 Getting to his helmet was easy. At the very least, the dogs weren't too bothered by this whole mess. They had their own shit to worry about, and no one was going to bother them. He grabbed his helmet, clipped it on, and grabbed his dented bat and his knives.
 Time for patrol. It wasn't like monsters let them be just because they were a little more horny than before.
 "Izuku, are you on your way out?"
-Midoriya waved as Hawks dropped down next to him. Either Hawks had impeccable control over his phermones, or Midoriya's helmet was really clamping down on the scent.
+Midoriya waved as Hawks dropped down next to him. Either Hawks had impeccable control over his phermones, or Midoriya's helmet was really clamping down on the scent. And then, Hawks stepped back by a foot. 
+Heat weeks were awful. Midoriya thought, but they were getting much better at dealing with them. Well, if they didn't want to deal with additional injuries, they would have to. Midoriya didn't shy from brutal reactions. If people couldn't handle it, then they shouldn't have come for him.
+
+-
+
+"This is insane!" one of the betas, because it was always a beta, an older gentleman that took command over the other quiet and very opinionated betas on base. "You broke his all of his fingers!" he shouted.
+Midoriya, who was getting his arm stitched up by something else 
 
 -
 
@@ -141,7 +143,7 @@ Gnashing teeth, looks of contempt, the whispering behind his back, all of it wer
 Not now. But back then.
 He gave a wave as he left, because the world would keep turning regardless of how many times they fought here and now.
 
-<->
+---
 
 Shattered mirrors framed the ground, decorating the ground in shards like snowfall. He raised his arm to wipe at his forehead, but stopped when he realized how much blood was dripping down his arm. The ugly gash on his forearm didn't reveal any bone, so he supposed that they weren't that deep at all. His other arm was still trembling from excertion.
 Figures that the room he crashed into was housing all these mirrors. At the very least, nothing escaped and the piles of limbs soaking in ponds of blood were proof that they would never get up again. All that was left was burning them all. 
@@ -208,7 +210,7 @@ He hadn't seen Dark Shadow in a literal year. The summer air, even at night, was
 Tears began to outpour from Tokoyami's eyes like a leaky facuet.
 Tokoyami Fumikage learned that he did not lose everything. The next step was easy like breathing. Simple in its clarity. 
 
-<->
+---
 
 Deku rubbed his face with the inside of his arm. He sniffled loudly, and took a deep breath. It felt as though his organs were made of lead, and it was determined to come crashing down on the ground. But he couldn't do that. He needed to keep moving forward. 
 Like that, Aizawa came running into the hallway. The man's steps came to a sharp stop.
@@ -232,7 +234,7 @@ Deku flinched. It would have been funier, but Aizawa had seen him impaled by cla
 Still, the young man raised his hand, recognizing that he heard them, or whateve,r and that wasn't something that they ever got from Helmet.
 Far away, in the privacy of his own mind, Aizawa wondered if Deku always assumed that someone else was being welcomed. 
 
-<->
+---
 
 ### housamo x bnha
 [in which midoriya is the second protagonist]
