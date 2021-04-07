@@ -33,7 +33,7 @@ When night began to crawl across the skyline, Midoriya came back.
 "Chisaki. Come with me."
 And when asked so politely, how could Chisaki ever refuse?
 Abandoning everything, he followed Midoriya out the makeshift infirmary, and then out of the main school building. When it looked like they were going to leave the school-ground. Chisaki spoke up.
-"Not that I wouldn't follow you anywhere, but shouldn't I be equipped."
+"Not that I wouldn't follow you anywhere, but shouldn't I be equipped?"
 "Then don't come with me."
 His eyebrow twitched, and a little more cautiously of what was around them, followed. If this was Midoriya's way of testing him, of testing his feelings by demanding complete obediance, then Chisaki should meet in full. If Midoriya didn't recognize his feelings, he wouldn't exist, after all.
 If Midoriya told him to die, it would be a beautiful death. If Midoriya was the one who killed him, it would be even better. 
@@ -119,15 +119,36 @@ With a lazy wave over his shoulder, Aizawa walked out with a spring in his step.
 <->
 
 There were a lot of things that Midoriya had to do today. They were going to clear out the parking garage of the strip mall, testing the roof of the houses, running checks on the water, things like that. Lots to do. He was going to finish with his lesson in Edo-era policies and head out. 
-"My application."
-So he really didn't know where, in all of that, he was going to make time for whatever Dabi had applied to.
-"...For?"
-"To become your mate."
-That bit of Midoriya that coiled his heart whenever someone mentioned anything like this, tightened.
-"Burn it-"
-"You burn it," Dabi cut off. "I've never done this before, but this is the right way to do it, right?"
+"Hey, be my mate."
+Midoriya looked up at Shigaraki, really squinted at him, and then looked out the window. The sky is in fact, above the ground. A bright blue with small, wispy clouds floating on by. He looked back at Shigaraki.
+"You don't mean that."
+"Be my mate."
+The shock quickly wore off as his Midoriya's eyes sharpened with his temper. If Shigaraki thought he could be intimidated, he had another thing-
+"Please."
+No, it would turn out that Shigaraki just didn't know how to ask.
+"No," Midoriya said.
+"..I'll ask again next year," the alpha said, "Because I don't think I'll change my mind in a year."
+Green eyes closed as he took a long sigh.
+"I don't even know where to begin with you," he said. "What does being a mate even mean to you?"
+Shigaraki raised his eyebrow, "That we do eechi things."
+"We can do eechi things without mating," Midoriya shot back. 
+Both of Shigaraki's eyebrows hiked up his face, "Will we? Can we?" His eyes dropped to Midoriya's lips, darkening in color.
+"If I did, would you drop this?"
+He leaned back, when Shigaraki started to lean in too close. It seemed to break the older man out of his trance. 
+"I don't know," he replied, turning around so that Midoriya was facing his back. "I've never wanted someone like this."
 
 
+### shitty sololvl
+
+"You're an S-Ranker," Touya said, four parts frustrated and one part desperate, "You can do anything you want. It would be a waste of resources and human life to try and make you do anything, so you don't have to listen to anyone. Just do what you want to do!"
+"...Any... anything?" Midoriya asked, his voice so quiet that it sounded like it would blow away like a candle.
+Touya's shoulder slumped as he nodded. "Yeah. Anything."
+"Like... eating chocolate before breakfast?"
+Touya stared at Midoriya for a long moment. He fell back into his seat, placed his head in hands and took a long, suffered sigh.
+"Yeah," he said, pulling his head up to stare at Midoriya, just as exasperated and tired, "like eating chocolate before breakfast."
+"Wow..." Midoriya covered his mouth with his hands, a thousand stars in his eyes. "That's... really powerful."
+Touya gave him a weak smile in return. 
+"We'll start here," he sighed. 
 
 ### Returning a Gift
 
@@ -137,3 +158,34 @@ Being told that he was worthy of throwing away that resolve should have come as 
 While he knew that this was good for him, and so he shouldn't complain, it made him worry about the world at large. 
 It worried him because the police gave him tip-offs. He had heroes reporting to him. Civilians were starting to turn to him instead of the proper authorities. 
 In return for his future aspirations, it felt like he was selling his childhood.
+
+### hawks & falcon
+
+Hawks and Falcon were the apple of the public eye. He whistled at the double page spread on the magazine, the stretch of red feathers. Young and powerful, they were calm and great. Identical twins, they spelled out a long and hearty career in heroics...
+Izuku placed the magazine down when his phone rang.
+"Midoriya Izuku speaking-"
+"We can't find Falcon or Hawks."
+Izuku closed his eyes, "I understand," he told the frantic secretary, "I'll get right on it. I'm sure they'll turn up for lunch."
+"Thank you so much, Izuku-kun! I knew I could count on you!"
+These days, this has been gotten too habitual. As the phone call ended with a click, a hand came to take his phone out of his grip while another hand flattened his magazine on the table.
+"C'mon, Izuku," Falcon purred against his ear as Hawks grabbed both his hands and placed them on the desk. 
+He tried his best, but Midoriya shivered as teeth scraped by his ear. 
+"Get right on it," Hawks added from in front of him, fingers rubbing circles on his wrists as he leaned across the desk.
+"I'm on the clock," Izuku hissed back, pulling his hands away. "And so are you."
+"Hero is-"
+"-always working."
+"C'mon baby bird," Falcon whispered as he tilted Midoriya's chin towards him. "Let's get lunch today."
+Hawks, silent as a mouse, was already on the other side of him, feathers holding Midoriya's wrist down to the desk as he kissed his exposed neck.
+"You haven't eaten anything, right?"
+And just like that, they leaned back and away. 
+"You left before I could get you your lunch." Hawks said, voice teasing but the gaze was anything but kind.
+"Well, nothing to worry about, since we brought it, ne, Kei?"
+"Good going, Gou. I was getting famished."
+Agreeing to something that Midoriya couldn't hear, the two turned to him as one.
+Hawks' hand came to wrench Izuku's chin from his twin's grip, leaning in to kiss his just as hungrily. Izuku pulled uselessly at his wrists, but couldn't get them free. Not that he ever did, but he never stopped trying. A hand came to tug at his necktie and undo his buttons. Falcon pushed his chair out from under him, and a pair of feathers kept him from falling. Eagerly taking the space behind him, Falcon buried his face in the crook of Izuku's neck.
+Sometimes, Izuku really hated these twins.
+
+### Housamo - Pansy
+
+Alone, Shennong thought, he was okay being alone. He thought and believed it, until that hand slid into his, and with a wide grin on her face, tugged him along to view the starry skies from the flower field. He should have been okay, being alone.
+Wrapping an arm around her, his human, he rubbed his face alongside her. She giggled, a bright sound that he could encase in his heart so he would be reminded of a time when he wasn't alone.
