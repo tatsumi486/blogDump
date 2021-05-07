@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 ### limited collection -> isekai so I guess Reforge 
 
 Midoriya shrugged, "I have two," he said, lifting up two fingers on one hand, "Classes. [Summoner (S-Rank)] and [Blacksmith (S-Rank)]."
@@ -29,6 +30,10 @@ He released the man, looking up a little shyly.
 
 ### sololvl [off brand solo level]
 
+=======
+### sololvl [off brand solo level]
+
+>>>>>>> 4bc2b68e80c9f7ebb9033d3151376424e4aa031a
 "Sorry for being so late," Natsuo and Touya came running up.
 Midoriya, with a large bandage across his chin, shook his head.
 "It's okay, I just got here," he explained. 
@@ -98,6 +103,7 @@ There were only two people that he would notice if they died, too.
 
 -
 
+<<<<<<< HEAD
 "Uhm, Natsuo-san?"
 Natsuo looked up at Midoriya, did he really have to wait for him to put food in his mouth to call out to him? He gave a garbled response, lamost choking on his food, and ultimately waved his hand at him.
 "Go ahea'," he said, covering his mouth as he spoke. "Wha' up?"
@@ -127,6 +133,8 @@ Because Natsuo might have been away from the field as an active hunter, but that
 
 -
 
+=======
+>>>>>>> 4bc2b68e80c9f7ebb9033d3151376424e4aa031a
 "We're a party of three," Touya said. "As in, there are three of us."
 Midoriya nodded. "You, me, and Natsuo."
 Touya let out a short sigh of relief, at the very least, he didn't have to explain this part. Next to him, Natsuo gave him a dirty look. 
@@ -163,6 +171,7 @@ Touya's expression melted just a little bit, and Natsuo wondered if this was wha
 
 -
 
+<<<<<<< HEAD
 "I can't get re-assessed," Midoriya said.
 "You can't?" Touya furrowed his brows, "Damn, it's really expensive."
 Midoriya pursed his lips, and they all stopped. It wasn't about the money, wasn't it?
@@ -197,6 +206,11 @@ Natsuo didn't know what he wanted to be when he grew up. Even as a kid, it was s
 He reached out, and placing his hand on Natsuo's shoulder, slowly brought him into a hug. It was an action that no Todoroki has ever down in this estate, probably. 
 "Thank you. I'm glad that I have a brother like you."
 With a toothy grin, with a spring in his step, with eyes brighter than anything Natsuo had ever seen growing up, Touya left the Todoroki Estate. 
+=======
+"...You live where?"
+"In the apartments..." Midoriya trailed off and pointed, "Over there."
+
+>>>>>>> 4bc2b68e80c9f7ebb9033d3151376424e4aa031a
 
 -
 
@@ -210,6 +224,7 @@ And with the last of his stuff, he left the Todoroki Estate. This time, he hoped
 
 -
 
+<<<<<<< HEAD
 "They're recruiting for the S-Rank raid that broke open," Natsuo said, "All Hunters, inactive or active, and required to be on standby. At the very least, registered parties are allowed to stay together."
 And by that, Natsuo meant that he was glad that they would be together and not with the rest of their family like they normally would be. Little blessings. 
 Touya shrugged, "If it looks bad, we'll skip," he said.
@@ -337,6 +352,8 @@ Even though none of them were present, Dabi felt like he could feel all of Japan
 
 -
 
+=======
+>>>>>>> 4bc2b68e80c9f7ebb9033d3151376424e4aa031a
 "Dabi, what's that?"
 The three stopped in the middle of the street. Ignoring the dirty looks that the other pedestrians gave them as they were forced to change their route. 
 "Uh..." Dabi stared at what Midoriya pointed at and then shrugged. "Natsuo, what is that?"
@@ -363,6 +380,7 @@ The bitter energy, the angry comments, the petty attributes, all faded away in t
 
 ### gacha
 
+<<<<<<< HEAD
 "I don't... I don't understand," Midoriya said, looking at the pamphlet and then back up. "It said 50% drop. It said..."
 "We ran this exactly 100 times," Dabi noted, pinching the bridge of his nose. "And we haven't gotten any drops."
 "No," Midoriya said quietly, his voice just barely a whisper. "Just. No." He shook his head. 
@@ -381,6 +399,14 @@ This time, the man did. He was honestly shocked that he could hear him, when Mid
 He gave a smile, "See?" he said, "We can start here."
 
 -
+=======
+"I don't... I don't understand," Midoriya said, looking at the pamphlet and then back up. "It said 805 drop. It said..."
+"We ran this exactly 100 times," Shigaraki said. "And I guess we'll be running it 100 times more."
+"No," Midoriya said quietly, his voice just barely a whisper. "No, I don't want to spend my days like this."
+
+
+### Way Back Home
+>>>>>>> 4bc2b68e80c9f7ebb9033d3151376424e4aa031a
 
 "Why don't you ask Chiyo-san?"
 "...Who?"
@@ -392,6 +418,7 @@ The blond blinked back, "He what?"
 "Mineta, you're just jealous that no one wants your number."
 "Alright then," Bakugo snapped out, "lead us there."
 
+<<<<<<< HEAD
 -
 
 "They said that you were injured!"
@@ -402,6 +429,8 @@ The blond blinked back, "He what?"
 Midoriya, holding a box of choclate bars in his hands, gave his friends an exasperated smile.
 "As you can see, I'm fine."
 
+=======
+>>>>>>> 4bc2b68e80c9f7ebb9033d3151376424e4aa031a
 
 ### Rotting Flower
 
