@@ -34,8 +34,10 @@ Dabi chuckled. He tugged Midoriya's hands off his chest so he could turn around.
 Dabi hummed, "You still haven't figured it out?"
 Midoriya's arms came down his side, and he pushed the older man back a little more. Looking mildly annoyed at the fact that he was getting pushed away, he still leaned back. 
 Small hands came up to his face, cupping his cheeks, and Dabi nuzzled his face against his palms. Kissing the base of his hands, he slowly opened his eyes and made eye contact with Midoriya. 
-"Something like this?"
-
+He leaned in to press a soft kiss to his lips, he hummed in delight when Dabi immediately opened his mouth and invited him in. A quiet kiss, languiid in nature still had his toes curling in a delightful way. 
+"Something like this?" he asked, panting just a little bit when they pulled away.
+"Hm," Dabi looked thoughtful. "I might need another sample to be certain."
+"You're ridiculous," Midoriya laughed, leaning in to give him just that.
 
 -
 
