@@ -1,3 +1,60 @@
+### Dark Continent 
+
+There was a bracelet on this human.
+"Is it a fashion statement or something?" Twice asked, rolling over his stomach. He poked it, eyes flitting up to Midoriya's face when the man flinched backwards. "It looks too tight to look comfortable."
+"It's a symbol," Midoriya replied back, his voice quiet. "It's not supposed to be comfortable."
+
+-
+
+"So, what? You're like, a criminal on the run?"
+Criminal?
+Midoriya stared because a lifetime told him that criminals were bad, awful people. He blinked, and managed a smile.
+"Yes," he said. Because at least criminals had a choice. The law applied to them. Didn't that mean that they were, at least, human?
+He gave a grin.
+"You don't..." Spinner hesitated, "Look like a criminal. Like, criminals should look more like-"
+"-Do not say my name," Dabi cut in.
+"-like a criminal," he decided on. 
+Midoriya's smile was as gentle as the first rays of sunshine after a rain storm.
+"I'm... not like the other criminals?"
+Spinner and Dabi leveled him a tired look.
+
+-
+
+"Be careful," Dabi said, "it gets cold during the winter." He dropped a few pelts on his table. Stretching his neck he turned back to Midoriya, "And knowing you, you're going to get sick anyways, aren't you?"
+"I'm pretty tough," he said, wrapping his arms around Dabi's chest and resting his cheek against the man's back, "and it's not cold."
+Holding onto Dabi like that, he couldn't see his expression. But Dabi's fingers rested on his, as gentle as snowfall.
+"Yeah?" the older man asked. "Maybe I should stay then."
+"Could you?"
+Midoriya's voice was light, bright, and the older man laughed.
+"Nah, I don't wanna deal with your whiny ass."
+"I'm not that bad!" the young man exclaimed, affronted.
+Dabi chuckled. He tugged Midoriya's hands off his chest so he could turn around. Leaning down, he pecked his forehead.
+"Yeah," he said, "You are." His arms wrapped around his waist and pulled him closer. Pressing a kiss to his nose, then his cheek, he placed his forehead on his shoulder and inhaled deeply. "You're awful."
+"Your actions don't match your words," Midoriya complained, but his hands came to his back, holding him firmly. "If I'm so awful, why are you here?"
+Dabi hummed, "You still haven't figured it out?"
+Midoriya's arms came down his side, and he pushed the older man back a little more. Looking mildly annoyed at the fact that he was getting pushed away, he still leaned back. 
+Small hands came up to his face, cupping his cheeks, and Dabi nuzzled his face against his palms. Kissing the base of his hands, he slowly opened his eyes and made eye contact with Midoriya. 
+"Something like this?"
+
+
+-
+
+"When... When we give our [True Names], it binds our soul to them," Eraserhead explained. 
+"...Isn't that important?" Midoriya asked, placing his hand over his heart.
+"Yes, but that's also how we know you're not one of us."
+"Huh?"
+"Midoriya Izuku," Eraserhead, "That's not your name, is it?"
+And Midoriya supposed that, so long as his slave marked his body, he wouldn't be anything more than [Deku]. He smiled back at Eraserhead.
+"If I told you that I haven't lied to you, would you believe me?"
+Eraserhead grabbed his chin and pressed his lips against his. His grip was bruising, and his tongue forced itself into his mouth. He sucked harshly, and his hand came to the back of Midoriya's head, tiling it so that he could get better access. One of his knees came up to the side of Midoriya, and Midoriya's neck was starting to hurt from the angle he was put in. His fingers came up to hold onto Eraserhead's shirt.
+The older man pulled back. Aside from the pink dusting his cheeks, he looked otherwise undistrubed. 
+"I wanted to make one with you," he said, "A soul bond."
+He got off the young man and sat down next to him.
+"But it doesn't work if it's one-sided."
+Midoriya wished his words and wishes meant something. He leaned his head against Eraserhead's shoulder. 
+"I'm sorry," Midoriya whispered. 
+
+
 ### sat
 
 There was a simple way to test it. There was such a simple way to do it, but it required courage. Izuku didn't have that.
@@ -5,7 +62,48 @@ He placed his hand over his heart and dug his fingers into the skin.If courage c
 Shaking his head, Izuku sighed, sick of disappointing himself. this was ridiculous. This shouldn't bother him so much. He was fine. He could take on groups of eight monsters altogether, but he was suddenly mute when it came to asking for some assitance.
 No, that wasn't what bothered him.
 What bothered him, what scared him, wasn't that. It was the expectations that would come afterwards. The undeniable certainty that indeed, Izuku could not do this by himself.
+He placed his hand on the commlink, "Who can fight?"
+Please.
+"Stain reporting in."
+"Miruko reporting in."
+"Endeavor reporting in."
+"Hai, hai, Toga-chan here!"
+"Hawks, reporting for duty!"
+"Spinner, reporting in!"
+The flood of calls, of replies, made his heart swell. 
+"Izuku," Dabi's voice was certain, "Your orders."
+In his mind's eye, he could see where everyone was. Their fatigued features, their frustration and their injures. Undoubtedly, they were as tired as he was, probably even more so. Izuku felt his heart palpate. His hands trembled.
+If this was a one-time thing. If this was just a dream.
+Then he prayed that they will all wake up the following morning.
+"Miruko, Stain, get to the emergency staircase. Endeavor, Spinner, get to the main stairwell. Hawks, get the main gates. Toga, Dabi, get to the parking lot."
+He took a deep breath.
+"About 50 monsters left. And additional 14 mutants left. Temples are weak point. Resitant to fire. They're not fast, but they're durable. None of them leave alive."
+"Yes, sir!"
+And it almost sounded like they were going to listen to him. He looked up the stairs. At the top floor, he would have to chase them all down. With a deep breath, he made a fist and chanelled the Quirk that Wasn't For Him. Hitting the ground, splintering it, ruining the hard work of someone else, he destroyed the flooring of the floor he was in and jumped backwards. As expected, the collateral damage had the building shaking and the monsters fled. Choked-out screams echoed from the stairwell. 
+He threw a few pens at the monsters as they ran out. His knee-jerk reaction was to run after and hunt down each and every single one of them, but with his side bleeding out and one of his arm broken, this was better. He needed to trust. And if his trust wasn't for naught, then he would know and someone would die and something worse would be waiting for them all after this battle. 
+Some monsters past him completely fine, but most were innjured. It was the only other thing that he could do for them. This was his limit. Instead of pain, he felt shame. Instead of shame, he should be focused. It was because he didn't focus that he was in this mess to begin with. 
+Within 15 minutes, they had finished making their way through the building. At the very least, Izuku was glad that he didn't need to completely trash the building. Pushing open one of the windows on the first floor, Izuku crawled out. He looked around, where they were dragging bodies out and then leaned against the wall. His hand came to his side and he took several deep breaths. 
+He closed his eyes, focused on his hearing, and almost cried. They were all alive. 
+"Emergency stairwell cleared," Miruko called in.
+"Main stairwell cleared," Spinner reported.
+"Izuku-chan!" his commlink came to life, "all 14 mutants are dead and burning!" Toga's cheerful voice broke thorugh. 
+"Counting 47 bodies total," Hawks relayed.
+"Four more," Endeavor's voice came onto the commlink,
+"We have two more too," Miruko added.
+53 total.
+Izuku limped out into the hallway. He could feel his conciousness starting to fade a little. Relief was bad for him, wasn't it? He leaned against the doorframe, his hand coming to his side. He couldn't tell if it was still bleeding or-
+"Danna-sama?!"
+Standing in front of him in an instant was Endeavor and Spinner. He waved them off and pushed off the wall. Be strong. Stand tall. As he thought this to himself, he couldn't help the smile on his face when he saw their ragged state. It must have been a tough battle. He sent a tough battle to them. The thought sank deeply in his heart.
+"Good work," he said.
+"... You too," Endeavor replied back.
+"T-Thank you very much," Spinner bowed back politely, his eyes darting from Izuku to his side and then his exposed, purple arm, and then back. "Are you... okay?"
+He nodded back, "We're alive," he said. And then, the laughter came bubbling out of his lips. "We're alive."
+"Yes," Endeavor nodded his head. "We are."
+It almost felt like a step forward. Which was foolish, because Izuku's fight was only starting now. 
+He straightnened out, taking a moment to orient himself, before he made his way out. His steps turned certain, and his features soured as he exited the building. 
+Trust was a strange thing, because suddenly, he had to remember to frown when he saw the others. 
 
+-
 
 It spelled out a bad time for him if his bat was already broken. 
 
@@ -23,6 +121,8 @@ Izuku rubbed his face harder. This whole thing was such fucking bullshit.
 
 -
 
+[Izuku's Left Eye]
+
 "...Izuku," Chisaki said, "Look at me." He made a motion at Kurono, and the man lifted up his index finger. "While looking at me, can you tell me how many fingers Hari has up?"
 A slow smile, one filled with bitter regrets, stretched Izuku's lips. It told Chisaki enough. The older man covered his face and took a deep breath, while Kurono's arms dropped to his side. 
 "Forget about it," Izuku said.
@@ -30,7 +130,6 @@ A slow smile, one filled with bitter regrets, stretched Izuku's lips. It told Ch
 Izuku stood up, deciding that this conversation was over. 
 "This one works," he said, pointing at his working eye. "And so does this one," he continued, pointing at Chisaki.
 Chisaki's jaw tightened considerably. "You're awful. A devil with the face of an angel."
-
 
 -
 
@@ -77,6 +176,11 @@ It made his heart ache.
 -
 
 "...We can't let them escape from the gate, right?" Midoriya asked. 
+"Yeah, that's why we're here-"
+And just as fast a barrier was set up. A chill came over them.
+"Don't waste your mana," Best Jeanist chided. 
+Midoriya shook his head, "If it'll bring security and safety, it's not a waste."
+That barrier continued, untouched and outputting the same ridiculous amount of magic, until the clean-up of Okinawa finished up, about a month later. It covered social media, countdowns were made dedicated to it. 
 
 -
 
@@ -239,4 +343,5 @@ S-Class:
 >> if not with squad, always with one of Chisaki's
 >> when he becomes the head of yokohama, becomes 
 
-Midoriya Izuku had ten seconds to mourn the loss of his parents before he 
+Midoriya Izuku had ten seconds to mourn the loss of his parents before he had to attend a dealing. Something about a family of three, with the youngest trying to go to college and the mother being sick...
+The entire scenrio made him sick to his stomach, but nothing did quite as well as the knowing smile from his anikis when they saw him. 
