@@ -1,4 +1,3 @@
-<<<<<<< HEAD
 ### Dark Continent 
 
 There was a bracelet on this human.
@@ -57,44 +56,6 @@ He got off the young man and sat down next to him.
 Midoriya wished his words and wishes meant something. He leaned his head against Eraserhead's shoulder. 
 "I'm sorry," Midoriya whispered. 
 
-=======
-### rotting flowers
-
-"You want to be free, right?" Midoriya asked, eyes gentle. "It's alright. I don't blame you."
-He looked at the assailant, he looked young.
-Death by stabbing. It wasn't the worst way to go, and all things considered, this was probably bettter. 
-"Get out of here quickly," he said. "Or else you will face a life worse than death."
-"Why... Why are you letting me go?"
-"When we're hurt, we hurt others. It's alright. I don't blame you. So run away and forget all of this.
-
-
-### sat
-
-
--
-
-
-An omega that smelled like blood would be the omega that Shigaraki couldn't stop staring at. 
-
-### Way Back Home
-
-["this isn't your world"]
-Midoriya woke up, tears streaming from his eyes. He sat up, fingers coming up to his eyes and he took a deep breath.
-Today too, he was in the wrong place.
-
-
-"Well, whatever you want, I'm certain you'll get there," Miruko said, certain like the sun.
-When Midoriya looked up at her, she grinned back down.
-"Look, hard work pays off."
-And somehow, being told that after the long hiking journey hit him differently.
-His eyes welled with tears. His body was that pleasant kind of tired, where he worked it out just enough, and his heart felt calm. He sniffled as he looked over the horizon.
-The world would look the exact same, but they would be incredibly different. The skyline with Miruko was one that he would probably never see again, not in his world where Miruko couldn't...
-He looked out.
-"Everyone..." his voice cracked, but he kept going, "says that. That I'll get everything that I want."
-And his heart felt like it was going to fold in on itself and crumple, like a house made of cards. 
-His hands trembled, because success meant goodbye.
-These days, no matter how hard he berated himsef for stealing what wasn't his, the words began to rang hollow even in his own ears.
->>>>>>> 807da7cc003c0b8cf27fc45886873d789fd2b91c
 
 ### sat
 
@@ -103,7 +64,6 @@ He placed his hand over his heart and dug his fingers into the skin.If courage c
 Shaking his head, Izuku sighed, sick of disappointing himself. this was ridiculous. This shouldn't bother him so much. He was fine. He could take on groups of eight monsters altogether, but he was suddenly mute when it came to asking for some assitance.
 No, that wasn't what bothered him.
 What bothered him, what scared him, wasn't that. It was the expectations that would come afterwards. The undeniable certainty that indeed, Izuku could not do this by himself.
-<<<<<<< HEAD
 He placed his hand on the commlink, "Who can fight?"
 Please.
 "Stain reporting in."
@@ -146,9 +106,6 @@ He straightnened out, taking a moment to orient himself, before he made his way 
 Trust was a strange thing, because suddenly, he had to remember to frown when he saw the others. 
 
 -
-=======
-
->>>>>>> 807da7cc003c0b8cf27fc45886873d789fd2b91c
 
 It spelled out a bad time for him if his bat was already broken. 
 
@@ -166,11 +123,8 @@ Izuku rubbed his face harder. This whole thing was such fucking bullshit.
 
 -
 
-<<<<<<< HEAD
 [Izuku's Left Eye]
 
-=======
->>>>>>> 807da7cc003c0b8cf27fc45886873d789fd2b91c
 "...Izuku," Chisaki said, "Look at me." He made a motion at Kurono, and the man lifted up his index finger. "While looking at me, can you tell me how many fingers Hari has up?"
 A slow smile, one filled with bitter regrets, stretched Izuku's lips. It told Chisaki enough. The older man covered his face and took a deep breath, while Kurono's arms dropped to his side. 
 "Forget about it," Izuku said.
@@ -179,10 +133,6 @@ Izuku stood up, deciding that this conversation was over.
 "This one works," he said, pointing at his working eye. "And so does this one," he continued, pointing at Chisaki.
 Chisaki's jaw tightened considerably. "You're awful. A devil with the face of an angel."
 
-<<<<<<< HEAD
-=======
-
->>>>>>> 807da7cc003c0b8cf27fc45886873d789fd2b91c
 -
 
 "Hm? Izuku-san? Uh, Izuku-chan?" Kaminari stammered out, but Izuku didn't give him a second glance. The taller man made a quick 180 so that they were walking in the same direction. "Are you going through here?" he asked, "Lemme get the door for you-"
@@ -199,7 +149,6 @@ Timeline:
 - Fulltime Hunter w/ Touya + Natsuo
 - S-Rank Gate opens in Okinawa, & reassess Izuku so that they would have an S-Rank Supporter (Enji asked, so they called him as a courtesy call but omg he's good)
 - Todoroki Bros Confess
-<<<<<<< HEAD
 - 15 year old Midoriya Izuku, youngest S-Ranker, not even a legal adult
 - Enji also offers to be his adult or whatever(ie adopt him).
 - just a Raid Party (Midoriya + Dabi + Natsuo)
@@ -209,11 +158,6 @@ Timeline:
 - enters another red gate, pulls out Shirakumo.
 - ends up recruiting  Shirakumo + Aizawa + Yamada, and makes a Guild
 - ["Deku"] -> guild for useless ppl / people who "awakened wrong"
-=======
-- 15 year old Midoriya Izuku, youngest S-Ranker, not a legal adult. 
-- enters another red gate, pulls out Shirakumo. 
-- 
->>>>>>> 807da7cc003c0b8cf27fc45886873d789fd2b91c
 
 -
 
@@ -233,7 +177,6 @@ It made his heart ache.
 
 -
 
-<<<<<<< HEAD
 "...We can't let them escape from the gate, right?" Midoriya asked. 
 "Yeah, that's why we're here-"
 And just as fast a barrier was set up. A chill came over them.
@@ -294,8 +237,6 @@ Twice spun his blades, getting the loose trails of blood off of them, and he loo
 
 -
 
-=======
->>>>>>> 807da7cc003c0b8cf27fc45886873d789fd2b91c
 "So, where do I put it?"
 "Put what?"
 Hawks gave a blinding grin as he waved the manilla folder in his hand.
@@ -312,7 +253,6 @@ Midoriya Izuku turned this shade of cherry red that had Hawks licking his lips.
 -
 
 "Augh," Natsuo's nose crinkled with his disgust, "Hawks came by again? Doesn't he have anything better to do?"
-<<<<<<< HEAD
 Midoriya stared up at him, a bouquet of roses in his hands.
 "What... do I do with these?"
 "Throw them away," Natsuo seethed back.
@@ -322,8 +262,6 @@ The young man took a step back, "But they're pretty."
 Natsuo, who could sense that the flowers already had several preservation spells on them, heaved a great sigh. He stood up.
 "Natsuo?"
 Without another word, the man grabbed his jacket and left.
-=======
->>>>>>> 807da7cc003c0b8cf27fc45886873d789fd2b91c
 
 -
 
@@ -407,19 +345,5 @@ S-Class:
 >> if not with squad, always with one of Chisaki's
 >> when he becomes the head of yokohama, becomes 
 
-<<<<<<< HEAD
 Midoriya Izuku had ten seconds to mourn the loss of his parents before he had to attend a dealing. Something about a family of three, with the youngest trying to go to college and the mother being sick...
 The entire scenrio made him sick to his stomach, but nothing did quite as well as the knowing smile from his anikis when they saw him. 
-=======
-Midoriya Izuku had ten seconds to mourn the loss of his parents before he 
-
-
-
-### chit 
-
-Gilgamesh stared down at her, and Gudako did her best to look anywhere but him. The dark look in his eyes, coupled with the bags under his eyes, contrasted the smile on his face as he leaned against her desk. Red eyes glowed for just a second as he took in her features.
-"Mongrel," he said, voice so low that it felt criminal. 
-"I don't know."
-"
-
->>>>>>> 807da7cc003c0b8cf27fc45886873d789fd2b91c
