@@ -83,6 +83,10 @@ Midoriya's hand grabbed his shirt.
 And Dabi never thought it could be such a threat, but indeed, his heart sank in his chest.
 "Then, should I just watch die?" his voice cracked.
 Midoriya gave him a cheeky grin, "Demons don't grant easy deaths, remember?"
+And occationally, Dabi wished that they never met. Then he'd never regret fighting for himself and he would never regret leaving that family. 
+Midoriya's hand grabbed his, lacing their fingers together, and beamed up at him. Laughably weak. Mockingly small. 
+Someone as small and as weak as Midoriya, but Dabi couldn't even protect him. Dabi reached his other arm to grab the young man and hold him close to his heart. 
+He never cared about living a long life, but the time they had together felt too short. The universe must be laughing at him.
 
 -
 
@@ -90,7 +94,52 @@ Midoriya gave him a cheeky grin, "Demons don't grant easy deaths, remember?"
 Midoriya, delirious with a fever, managled to mumble something or another.
 "If you reject me, I'll have an answer."
 A cool towel came to his forehead.
-"So get better already."
+"So get better already. Or else I'll murder someone."
+
+-
+
+Endeku -> train crash? they're stuck together for two days? enji can't use fire because cave-in crash & limited oxygen
+-> enji's here to catch a train to do a public safety survey thing 
+-> midoriya on his way home from the hospital (excused absense)
+-> 10am pre-rush crash. Everyone says it good that it wasn't during rush-hour, but that didn't mean that no one was operating the trains
+-> 48hrs with #2 Hero
+
+-
+
+"Stay," Enji said, his hand grabbing Midoriya's loosely. "Choose to stay with me."
+Midoriya stared at him, and then tugged his hand back.
+"I don't think that's a good idea," he said, "And it won't look good for you either." 
+"There's a difference between looking good and being good," he said, "I think I get it now."
+He brought his hand up to his chest, right over his heart, like he wanted Midoriya to feel his earnesty through his pulse.
+"I want to show you," he said, "that your affections weren't wasted on a man like me."
+At that, Midoriya laughed.
+"It was never a waste," he said, "I didn't waste anything on you. There's nothing about that's a waste."
+A watery laugh escaped his lips, and he hunched his back even more. Pressing Midoriya's knuckles to his head, he gave this limp laugh, like he thought he didn't deserve any bit of happiness that he got.
+"Since meeting you, the things that I didn't struggle with has gotten so heavy," he said. "Yet, it's not a life that I wish to return to."
+"You don't have to," Midoriya tried.
+"Then stay."
+The young man stared at him and shook his head. "I can't... I can't do that. I can't. You know why. If I choose you, it's not even just a few years. It might not even be six months. what... What does it matter? Can't we just keep going like this instead?"
+"Even if it's just six months," Enji said, "I want to make you happy for the rest of your life." 
+"Then what happens to you?" Midoriya asked.
+And the man grinned back, dazzling and handsome, "I will experience a happiness unlike anything else for six months."
+"That's too sad," the young man shook his head. "I don't want to do that to you. Can't you find someone else? Someone that would be with you and stay with you?"
+"If you say yes," Enji replied, "I will have."
+And Midoriya hated how his heart fluttered in his chest.
+"We can't be happy," he said. 
+And with eyes as gentle as gentle as the sea was expansive, Enji 
+
+-
+
+"Can you save him?!" Dabi yelled out, and Enji wondered if he knew how much he looked like Rei. "Just, just him. Can't you save him?"
+He covered his face.
+"Save him. And I'll turn myself in."
+"...If you turn yourself in, you might never see him again," Enji reminded him.
+"You won't break your word," Touya replied back. "You're awful. A real shitstain on the world. My life was miserable from the moment I was born because you were the one that I was born into. But you've always cared about being a Hero. Being a Hero matters to you."
+He shook his head.
+"Save him. I'll do whatever you want."
+
+(and since Dabi's Endeavor's kid, they decided to pretend it never happened and rebranded him as Endeavor's secretary after a few yeras in prison. Except, by the time he came out, Izuku was already...)
+
 
 
 ### APOC
