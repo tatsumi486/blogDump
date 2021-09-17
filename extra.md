@@ -1,3 +1,135 @@
+### solo lvl
+
+"...A school?"
+Yamada nodded, "A senpai of mine invited me. A university with the focus of hunters. Raising them, helping taking care of finances, and helping network into the bigger playing field, things like that."
+"Is there enough things to even teach them?" Dabi asked, joining the conversation as he jumped over the back of the couch and settled in next to Midoriya. His arm came behind Midoriya's head and he bent it so that he could rest his head against his fist. "Sounds like a money-grubbing scheme."
+"We say a university, but it'll be run more like a community college. According to the Association, we'll be a guild too. An introductory-guild for people starting out."
+With a tray of several cups of hot tea, Natsuo came forward. "That's nice and all, but why are you telling us?"
+"Shota and I are going to go teach," Yamada said. "So our pressence here is going to be spotty."
+In the background, Twice cheered. Midoriya shot him an exapserated look while the other three ignored him.
+"And we were wondering if you would like to come too. Maybe not as explicit teaching staff, but if we have more high-ranking hunters, we can provide a safer experience for kids coming in."
+"You're just asking us to take responsibility," Dabi summarized. "Yamada, what happens in gate, happens in a gate. By the time we come out-"
+"I know, all we have are the people that are alive. But we just don't want any more people dying than they have to. That's why Shota and I are going for this."
+"What about Shirakumo?" Natsuo asked. "Are you going to take him with you?"
+The blond gave a crooked grin. "We're warming him up to it right now."
+"When are you guys going to start?" Natsuo asked, "The spring semester?"
+"Next fall," Yamada replied, "And we'll have some trial runs for the summer to help with the fine tuning."
+"Dabi, Natsuo, I don't think it's a bad idea," Midoriya said quietly.
+"You too," Yamada said quickly, "The invitation is for all of you." And then, he took a deep breath, "even Twice."
+"Whoa! Seriously? You trust me that much?!" Twice came running in, eyes wide and Yamada grimaced. "I hate kids though. //I love kids so much!"
+"You never hire half a raid-team," the blond said, "The point of these classes is to try and decrease the number of people who die from avoidable deaths. And well..." Yamada rubbed his neck, "There's been more and more younger people that have been awakening. No one wants to send a kid to their death."
+Midoriya stared back and looked at his knees. "I haven't... graduated from high school," he said. "I don't think they'll take me seriously."
+"Then they'll die," Yamada cut in. "Working against a Supporter or a Healer is pretty much death in most dungeons. If they don't learn it, they'll die." He paused, and then gave a small grin, "But don't worry, there won't be that many people who pick on an S-Class Supporter. I'll see to it."
+Midoriya stared at him for a moment longer and then back to the ground. Wringing his fingers together, he shook his head.
+"I... I need time."
+"...Midoriya," Yamada said, "You don't owe us anything. If this is something you want to do, then you can do it, but you're not required or anything to do it. Shota, Oboro, and I will still be around." 
+
+-
+
+For all the critism that they recieved, however, there were an overflowing amount of applicants.
+Midoriya leaned his head against the wall and thought. 
+"Whoa, Midoriya?"
+Natsuo stumbled on him, a tray of three mugs of hot chocolate in his hands, and he blinked. Midoriya turned over, eyes landing on the tall tower of whipped cream in the cups, with chocolate shavings and cinnamon powder on them, and looked back at Natsuo. Without another word or even a twitch, two different temperature and time preservation spells came on their drinks, letting Natsuo know that the young man wanted to talk. Just the two of them, in the hallway.
+"I'm scared of school," he said. He covered his face. "I know, I know it's stupid. Because it's not like it can hurt me or anything but I'm just... I'm so scared. I hate it. I hate this."
+
+
+### kind nightmare
+
+"Shall we... raise our level?" Yamada asked, waggling his eyebrows at Midoriya. He leaned in close enough to rub their noses together, but right before their lips touched, Midoriya backed off. 
+A bright red flush crossed his features immediately, and he gave a curt nod. "R-Right," and he turned around to grab the box underneath his bed. "I-I uhm... I have some of the candles-"
+Yamada's arms reached over him, and he pulled the box further away. With his other hand, he turned Midoriya back around, and flat on his back. Looming over the smaller man, he hummed back. 
+"We don't need those, sweetheart," he said, a grin on his face.
+"R-really?"
+And the confusion in his voice made him pause. The English teacher frowned and pulled back. His hands grabbed Midoriya's hands and pulled him up. Sitting together on Midoriya's bed, the blond stared at Midoriya.
+"I know I shouldn't be saying this, as your teacher and all," Yamada said, "but you know, 
+
+-
+
+"So let me get this straight," Dabi said, "You're trying to get through this dungeon to find your mom. There are monsters in the dungeon, and to win against them, you fuck to get stroner."
+Midoriya winced but nodded.
+Dabi nodded, "Then, there was a reason why you got me, didn't you?"
+The young man nodded again, guilty.
+"I thought that no one would miss you."
+It stung. Something that Dabi didn't realize that he still had stung. It made his jaw clench and his hands flex. He nodded slowly.
+"...You know, we're not in there. I could just kill you."
+He nodded back. "I know."
+The taller man tilted his head to the side. "You know? So what, you're waiting for me to off you? No, that's wrong... You're the self-sacrificing type. Do you think that if I'm busy with you, I won't harass innocents out there?"
+Midoriya covered his face, and Dabi gave out this bitter laugh.
+"What the fuck?" he asked, his hand coming up to cover his face. 
+He took a deep breath and leaned his head back. Arms dropping to his side, Midoriya would be the one person that could admit that he had taken the fight out of Dabi. Instead of relishing in the sense of victory, the young man curled up into a tighter ball and awaited a fate worse than death.
+"And now?"
+The teen shook his head.
+"Tell me. You owe me at least that."
+He flinched. There was a moment of silence before he moved his hands to cover his face. Even like that, however, Dabi could see how red his ears had gotten.
+"I like the way you make me feel."
+Something in his heart loosened. Taking a step forward, he crouched down in front of him.
+Dabi placed his hand on one of Midoriya's knees, his palms bigger than his kneecaps, and Midoriya flinched back.
+"I'm sorry," he said. "I'm sorry-"
+He grabbed the young man's arms and pulled them away from his face.
+"Don't apologize," he said. "I don't want to hear the guy I like apologizing for liking me."
+Midoriya stilled and slowly be brought his head up.
+"You... You don't mean-"
+"If you make me repeat it, I'll get shy," the older man deadpanned, but Midoriya's hands grabbed his shirt.
+"You don't mean that. It's not real. You don't actually like me. There's no way-"
+"You really know how to piss a guy off," Dabi sighed, "You only look at me to tell me that I don't know what I'm feeling." He grabbed his wrists, and pushed them to the wall on either side of his head. "What do I need to do to prove it? I can make you feel like that, for as long as you want me too. You get that right?"
+"It's not real! It's just... just fabricated feelings from these items!" Midoriya yelled back, "If it weren't for these items, we wouldn't have ever... ever met." He quickly lost steam, his arms falling slack in Dabi's grip.
+"Then, let's finish this," Dabi said, "And you'll know, right? Whether or not this is real, we'll know then. But you know, right now?" He leaned in, rubbing their noses together and resting his forehead against his. He took a deep breath, and gave him a small smile.
+In the two inches between their lips, Midoriya recieved a confession from someone who once wanted to burn the whole world down.
+
+-
+
+"Aren't we going to...?" Midoriya's voice trailed off as Dabi climbed into bed with him, his clothes still on, and more importantly, letting Midoriya keep his clothes on.
+"I'm not so easy that I'd have sex on the first date," he said. He propped his head on his fist, and looked down at Midoriya next to him. "Though I suppose I could make an exception for you."
+Midoriya's face darkened, and he laughed.
+"
+
+-
+
+"I confessed," Dabi blurted out.
+Twice stopped cold, and placed his bowl of salad on the counter.
+"...And?" he asked, "What did Izuku say?"
+Dabi leaned against the doorframe. "That he liked me too."
+The blond stared at him, and then the counter. He pushed the salad further back and then placed his forehead down on the cool counter.
+"Well damn," he said. "Are you guys... together?"
+"Nope," Dabi replied. It came out airy, like he didn't care at all. "He didn't believe me."
+Twice looked up, "Yeah, I can see that. You're not the honest-kind. // I'll always believe you!" He gave a hearty laugh and resumed stirring the salad. "Besides, just because he likes you now," he took the serving spoon out of the salad bowl and pointed it at Dabi, "doesn't mean he'll like you when this is all over."
+The man gave a broad grin, like Dabi had just made his day.
+And of course, Dabi would never admit it, but he looked better like that than he did before. He gave a crooked grin back, and wondered if Midoriya knew that he saving people didn't just mean taking them out of a dangerous situation.
+"Yeah, yeah, what are you doing anyways?"
+"Midoriya said he wanted cake," Twice explained, with his bowl of salad and a serving spoon.
+Dabi eyed it and nodded. Midoriya would be fine. He can't take a dick like Endeavor's and die from eating whatever strange conconation Twice made. 
+"I'm sure he'll love it."
+Power of Love and all that.
+
+-
+
+"...That offer of yours," Dabi said, rubbing the back of his head, "Is it still availiable?"
+Hawks stared at Dabi, eyes wide and mouth agape before he nodded his head.
+"Yeah. You'll be working under me. You... sure?"
+The older man nodded his head, and sighed.
+"Yeah. That old man of mine," he sighed, leaning back in his seat, "I don't think I can work with him. Even seeing him here and now..." He rubbed his chest, "He feels like a stranger. At that point I'd rather go with an actual stranger."
+The blond nodded. "I understand. We'll get that ready for you."
+"And besides, when you guys go to leave Midoriya high and dry, someone's gotta keep him safe."
+"Someone like you?"
+Dabi laughed back. "Of course not. I'm not a hero. The best I can do is buy him some time."
+But the look in his eyes spoke of a man with ambition and greed. Hawks wondered if Dabi knew how full of shit he was. 
+Just in case, he mentioned it. "You're full of shit."
+The man deadpanned back, "Pot; kettle."
+
+### apoc 
+
+"Here."
+Shigaraki took the beer from Endeavor. A situation he never thought he would be in. 
+"Thanks," Shigaraki replied, awkwardly as he took the alcohol. "Can you even drink this?" he asked.
+"I burn through it," the man replied back. He leaned against the fridge as he popped the can open. "What about you?"
+"This isn't enough to do me in," Shigaraki replied back.
+There was a long moment of silence. Two men just enjoying their beer on the rooftop under the moonlight.
+"You know," Shigaraki started, feeling his inhibitions loosen, "I used to hate peace."
+Endeavor didn't say anything, and leaned against the railing, looking down. Shigaraki leaned back on his hands, and watched them pass across the stars. 
+"Thought it was boring. It wasn't real. We're just... mindless sheep waiting for the world to come crumbling apart."
+"And now?"
+"Really want to take a nap for the week."
+
 ### way back home
 All former OFA-holders (except Shimura Nana + Yagi Toshinori) are middle schoolers (1-2 yrs younger than Midoriya)
 
