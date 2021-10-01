@@ -48,6 +48,43 @@ Before he could say anything, Kan pushed forward.
 [high p def, high vitality, and since they're S, high attk :<]
 [dungeon boss: 4-armed cyclops]
 
+
+"It's an old injury," Yagi said quietly.
+Green eyes looked up at him and he gave an uncertain smile at him. Whether it was bbecause of nerves or because he was just shy, neither of them knew.
+"Do ... Could I?" Midoriya lifted his hand up. 
+The older man stared at him for a moment longer before he nodded his head. 
+The blond stared at him and looked down. "It's a [curse], shounen. A [curse] filled with hate. Do not feel disheatened if nothing changes, because no one has ever been able to do anything about it-" 
+"Oh, the caster is still alive," Midoriya said suddenly. His hand glowed green, a soft light like sunlight filtering through a forest's trees, and Yagi gasped when he felt something return to him. "The [curse] is made of four-components, and it's saturated with old injuries and a time spell."
+"I... what?"
+Midoriya smiled back, "Once you know how a spell if built up, it's easier to take it apart." 
+He lifted his hand up, and Yagi flinched at the raw power that emulated from the young man. Years of experience told him that if they were to fight, it would be a bitter battle. 
+With a little hum, the age-old curse, the thing that had held Yagi behind for so long, melted away.
+His hand came up to his side where the pain stopped. The pain finally stopped.
+"Any discomfort? If you're nauseous, that's normal. I... I probably should have used a de-buff before I applied-"
+Yagi's hand shot out to grab Midoriya's, and the young man cut his own sentence off with a quiet, "eep."
+"You... Do you know what you just did?"
+The young supporter stared at Yagi's hand holding his wrist, and his face flushed. He looked alternatively from his face to their hands and then back. 
+"Oh, I uh. I-I'm sorry. I can uhm..." he looked to Yagi's side, where there wasn't even a scar or phantom pains or anything, and then looked back down. "cast another [curse] on it, if you want-"
+"No, no," hte older man shook his head. Covering his face, he released the young man. "I'm sorry for grabbing you I... I am just so happy. I don't... I never thought that it would, that it could..." He looked between the young man in front of him and then back down. He bowed his head forward, "Truly, thank you. What... What's your name? Please, allow me to show you a token of gratitude-"
+"You don't need to," Midoriya said, shaking his head. He waved his hands in front of his chest and gave a polite smile. "I'm glad that I could help!"
+Yagi's hand grabbed his wrist again, "Please," he said. "I insist."
+Midoriya hesitated, and tugged on his wrist. Looking between the larger man and his hand, and then back, he shook his head again. 
+"M-my mom said I shouldn't be talking to strangers."
+The blond sighed back and released him. "...Yes, you're right. We are strangers."
+The man stood up, and gave him a polite, formal bow.
+"My name is Yagi Toshinori, Number One Hunter in Japan," he said. He straightened out, and reached into his pocket to pull out a business card and a pen. He scribbled something on the back of the business card, and handed it over. "If you ever find yourself in times of trouble, or you feel like you are cornered with no place to go, please, give the number on the back a call."
+Pursing his lips, Midoriya took the card in his hands and stared at it. Indeed, it was the business card of one of the few S-Rankers in Japan. On the back, there were a few more digits scrawled there. Somewhere deep inside of him, he felt nauseous, like there was something systematically wrong with this. He thrust the business card back.
+"No," he said, stern, certain, but confused and a little rude. It was probably wrong to do this, but he couldn't explain why he felt like this. His stomach churned unpleasantly. 
+
+-
+
+"It's so that we can be more comfortable around each other," Yagi said. "I don't think you have anything to worry about."
+But from the way that Shigaraki was just glaring at him from the side, Midoriya didn't think it was actually going to be that easy. He pursed his lips and looked up at the older man. 
+"Okay," he said, "I... I'll do my best."
+Yagi's smile was beaming. 
+
+-
+
 And then, streaming live and and being watched all around the world, the impossible happened.
 Endeavor, who had been torn in two and impaled through the head, had been revived. Ten minutes after his death, when his body had ran cold and the Commission had confirmed the disappearance of his heartbeat and his magic had run cold, he stood up. Looking to be whole and hearty, the man looked just as shocked as the rest of the world watching. 
 Standing next to him was the small and unimpressive Midoriya Izuku. The Supporter that everyone claimed was not good enough and had lied to get his S-Ranked reading. That there was no way that Midoriya, who was small of his age 
@@ -157,4 +194,23 @@ The world looked so lovely now.
 
 Midoriya stared at him and gave him this smile. Hawks felt like, in that moment, he wouldn't mind if the world slowed down just a little bit more. 
 
+### withering
 
+"Eraser-sensei," Shigaraki greeted him. "Being a hero is hard, isn't it?"
+He tilted his head to the side and gave an exaggerated sigh. 
+"I can't do it. Even saving one person is too damn hard for me."
+Aizawa narrowed his eyes, but he couldn't get a clear reading on this man.
+"What the hell do you want?"
+"Aw, don't be so cold to me," Shigaraki laughed, "Isn't it obvious what I want?"
+Aizawa narrowed his eyes. 
+"Even villains have things we want to protect," the man said, lifitng his hands up and give a theatrical shrug. "You get what I'm trying to say right?" He shoved his hands into his pockets. "There's someone I want to protect. And I know how these dealings work. You gotta give up something of euqal whatever, right? So my life for his."
+And he grinned, a crooked thin on his face that would never passed on a hero.
+"And he'll never know what I'm willing to do for him. Don't you think that it's a bit romantic?"
+
+-
+
+Aizawa's hand came to Midoriya's head, running his fingers though soft hair and smiling when Midoriya leaned into the touch. 
+No one would know about what he did. The real hero. He didn't just arrest people and protect the world. He brought a light to a forgotten corner of the world, and all those who basked in his light found something worth following.
+The older man leaned down to kiss Midoriya's forehead. A big smile stretched his lips, and Aizawa wondered if, when Midoriya goes, he would lose himself too, and destroy the society that wouldn't remember him. 
+It was a thought for another day. Midoriya didn't have a lot of time left, so he needed to use it as efficiently as possible. 
+With an arm around Midoriya's waist, Aizawa buried his face into his shoulder and pulled him in close. 
