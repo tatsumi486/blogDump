@@ -1,4 +1,10 @@
 ### kind nightmare
+[ villain -> hero 
+ dabi -> endeavor
+ shigaraki -> aizawa
+ chisaki -> all might
+ twice -> hawks 
+ (but they're all under survailence by HC?)]
 
 Aizawa frowned. "Midoriya," he said, hating the fact that he couldn't even let th kid rest properly, but this was beyond his control so, "the lights aren't coming on," he said, and as the words came out of his mouth, Midoriya shot up.
 The young man flinched, no doubt from proof of their passionate session, and his hand reached for his phone.
@@ -46,9 +52,71 @@ Starting with an apology. And then following up with a promise.
 
 -
 
+"Midoriya-kun, have you been struggling financially?"
+Midoriya jolted. Eyes wide, he almost dropped the tea cup, and it clattered loudly back on the table.
+"S-Sorry-"
+Yagi's hands extended to grab Midoriya's hands, stopping him fom doing anything, and waited for a response.
+"I'm not looking for an apology, Midoriya-shounen. I am asking because I am worried about you."
+"S-Sorry for the worry, I'm fine. I am totally and absolutely fine. There was some trouble at home, but it's all working out now so I'm fine and I'll be okay, so you don't have to worry. I-I work harder so I don't disappoint you-"
+Yagi's expression softened. 
+"My boy, you are the furtherst thing from a disappointment."
+Midoriya jolted, eyes wide. 
+
+-
+
 Midoriya woke up slowly, a yawn ripping through his throat, and when he sat up, realized there was an arm over his waist. Vaguely, he remembered sleeping alone. He looked to where Aizawa slept, half curled around him like a large cat, and his arm tightened around Midoriya's waist.
 "It's Sunday," he murmured, eyebrows furrowed and clenching his eyes shut. "Sleep in." 
+Midoriya hesitated. Was it really okay for him to rest? He needed to do his homework, and then he needed to head back into the dungeon. He didn't know what he was going to do about the bills, but most importantly, he needed to figure out the floor. The faster he did, the faster he could release the people he had from this awful mind-control curse he placed on them. 
+He pulled his teacher's rm off of him, and pulled the cover up to his shoulder. 
+"Izu...ku?" he mumbled. 
+"Bathroom," Midoriya said quietly, because it wasn't a lie, just not the whole truth.
+And Aizawa, reached a hand out to grab his head and yanked him down for a slow kiss. His tongue, languid and slow, met his and rolled around with Midoriya's tongue before he pulled back.
+"Come right back," he said, before he flopped back onto the pillow and closed his eyes. 
+Heart warm with a feeling that wasn't real, Midoriya smiled back. He got off the bed on shaky legs. Teetering to the bathroom, he got ready for the day.
 
+-
+
+"Why didn't you come back?"
+If Midoriya was being honest, he would have said that he thought the feeling would have worn off by now. That he didn't want to over stay his welcome in Aizawa's life. But instead he smiled.
+"I got hungry."
+Aizawa nodded his head, and his eyes looked around to where Midoriya was doing his homework in the kitchen, the room furthest from the bedrooms. 
+"And that's why your math textbook is out?"
+Midoriya flushed and stammered out, "H-Hungry to learn!"
+A hand came to his hair, gently ruffling it, and he felt warm all the way to his heart.
+"It's okay," Aizawa said, "I'm not upset."
+Midoriya nodded, hesitantly.
+"Can I kiss you?" he asked.
+The young man flinched, but clenched his eyes shut and closed his mouth. His teacher stared at him for a moment before he leaned in and kissed his forehead. Midoriya jolted, and peered up at him, wide-eyed.
+"May I?" Aizawa asked quietly.
+He nodded, and Aizawa's hand came to cup his cheek.
+"It's okay to say no."
+"I-I don't mind."
+"That's not yes."
+"Yes, please kiss me."
+Lips were against his immediately. A hand reached behind him encompassing the entirety of his lower back with ease. A hot tongue licked against his lips, and Midoriya opened his mouth immediately, and gave a muffled moan when Aizawa's tongue touched his. He could feel the man's smile against his lips before he pulled back. 
+Both of their breathing was labored. Midoriya kept his eyes close, focusing on his breathing, while Aizawa's heavy gaze looked over his face. He licked his lips before he finally pulled back.
+"Get to studying, I'll make breakfast for you."
+"S...Huh?" The words slowly processed in his head, and Midoriya shook his head. "Wait, Sensei, I should-"
+The older man reached over and grabbed his hand. Midoriya gave this quiet "eep" sound, his face turning red, and the older man gave an exasperated smile, two-parts fond and one-part endeared, not that Midoriya understood what that expression of his meant.
+"Could I make breakfast for you?" he asked again, feeling Midoriya's sweaty and clammy hands in his. The least he could do was make sure that the young man knew how it felt to be loved and beloved. His hand squeezed his, and patiently, he waited.
+"Y-You don't have to..." and then his stomach growled loudly. His face darkened considerably and Aizawa pursed his lips. 
+"Don't get your hopes up," Aizawa said, "I'm not much of a cook. What do you have in your fridge?"
+Midoriya hesitated, and Aizawa felt an enroaching feeling of worry burrow in his heart."Midoriya, what... have you been eating?"
+"Some... sometimes, Kan-sensei buys convienence store bentos for me."
+"...And what have you been eating otherwise?"
+There was a long slence and Aizawa turned around. He grabbed a cupboard when Midoriya's hands grabbed his shirt.
+"Wait, Sensei, please don't be angry-"
+Aizawa stared at the sight of within the cupboards. Reaching out, he grabbed it. In his head, he already knew. These were the cheapest brand of cat food that money could grab. He knew, because always raged in his head at the thought of anyone feeding their cats this garbage.
+"S-sensei?"
+How long? How long had Midoriya scraped around for his electricity and water, stressing about his empty apartment and the rent, living with literal monsters in his closet and still studying to be a hero? 
+"Sensei, I can explain. It was a bargain discount! And it's not for me! I-"
+The excuses came spilling from Midoriya's lips, but Aizawa understood what was going on. His student didn't own a cat, didn't find a stray in the streets, didn't have any form of cat hair coating any of his clothes or his home. 
+"Midoriya," I'm not upset," he lied, and he turned around to face the young man. Clear as day, he could see that his student didn't believe him.
+"I'm not upset at you," he said, so goddamn upset that he could feel himself getting nauseous. "Just... the situation. In general."
+"I-I'm sorry."
+"No," Aizawa's hands squeezed his shoulders, "It's not your fault. Maybe there were some bad decisions, but this... this situation isn't your fault."
+And Aizawa's eyes narrowed when Midoriya's eyes started to water. It couldn't be...
+"Midoriya," he repeated, and very sternly said, "I know you're doing your best given what you have. You have done well. Good job holding out. From now on, I won't let you be by yourself."
 
 -
 
@@ -62,6 +130,13 @@ Midoriya felt his shoulder soak, and wrapped his arms around the older man. Quie
 "I'm okay," Twice said, arms tight around his waist as he trembled with every breath. 
 
 -
+
+"In Midoriya's future," Chisaki said, leaning back against the wall as he stared blankly forward, "It would appear that I am not there."
+He looked at his hands.
+"Oyaji once told me to be careful of people who inspire us. If we trail too close to the sun, we will burn."
+His hands hung limply at his side. 
+"I never thought that protecting someone could feel so heavy."
+
 
 
 ### villain academia 
