@@ -1,4 +1,4 @@
-### kind nightmare 
+#### kind nightmare 
 
 On occasion, it felt like the world was coming for him. Like, he he was the butt of a joke, but he didn't know the joke so he couldn't even try to laugh it off.
 "Shounen," Yagi's voice rasped out, "Shounen, you smell so good, you-"
@@ -77,9 +77,9 @@ He didn't even know where to begin with how wrong this all was.
 
 Midoriya came out of the shower, looking a little more refreshed. 
 "Did you take it out?" Hawks asked.
-Midoriya flushe, and shook his head.
+Midoriya flushed, and shook his head.
 "G..." God that's hot, "Go take it out."
-The student returned to the bathroom, and Hawks tried not to think about how hot it was. Encouraging himself to not jump the kid, he impatiently waited for the food to arrive. 
+The student returned to the bathroom, and Hawks tried not to calm himself down. Encouraging himself to not jump the kid, he impatiently waited for the food to arrive. 
 
 -
 
@@ -94,7 +94,51 @@ Hawks' hands shot to grab his shoulders.
 "Hawks-san," Midoriya simled back, "I already told you, it's fine," he said. "C'mon, the food is getting cold."
 Hawks stared at him for a moment longer and took a seat opposite of him. 
 More that some pretty words, Hawks understood that his actions needed to speak louder.
+"It's not really about whose older or more experienced," Midoriya said, "We're both consenting and-"
+"You still call me Hawks-san," the blond blurted out. "And I still call you Midoriya." He covered his face, reminding himself of how Endeavor told him that this boy as [precious] to him, and found his reason and determination. "Midoriya, I will properly take responsibility," he said. "I don't want you thinking that this is normal and acceptable behavior. You shouldn't..." but that expression Midoriya made on the sidewalk resurfaced in his mind again, "You shouldn't ever need to think that."
+"...Hawks-san," Midoriya stared at him for a moment longer, and then spoke clearly, "If you want, we can pretend none of this ever happened. That you were looking after me because I am Tokoyami-kun's classmate, and you helped me out tremendously. Our story could end there and-"
+"No."
+Hawks stood up, his wings knocking his chair back as his hands slammed down on the table. Midoriya's eyes widened, surprised and shocked, and Hawks realized what he had done.
+"I... sorry," he covered his face, "I don't know what came over me. But I don't... I don't want to let you go."
+Midoriya's expression soured. "Hawks-san," and Hawks was getting tired of hearing him say his name like that, like they were just strangers when they were obviously so much more, "If... If you just hold out a little longer, these items won't mean anything to you, and I will have cleared that dungeon so this... this hold on you will be released. Truly," he dipped his head forward, "I am so sorry that you were dragged into this."
+The blond understood. No matter what he said or what he did, Midoriya's self-inflicted guilt was that much stronger. Whatever Hawks said, whatever he wanted to prove, it would have to wait until this... dungeon thing was over. 
+His feathers picked his chair up as Hawks made his way to Midoriya's seat. The young man pushed back against his chair, but remained seated. The thought that Midoriya felt like he owed Hawks this made this even worse.
+And maybe it was because Hawks was a terrible person. He wasn't anything resembling the Hero-Ideal he wanted to uphold. Somewhere, deep inside of him, he knew and remembered his parents, and that phrase "the apple doesn't fall far from the tree" haunted him. What's wrong with trying to keep something he wanted close? 
+Hawks was certain about this though. If Midoriya fell in love with him, if Midoriya thought that Hawks was worthy of his love, then even if Hawks lost all his memories of the last few weeks, he knew beyond reasonable doubt that he would fall for Mioriya again. 
+"
 
+-
+
+"Well, looks like we know one thing for certain," Aizawa sighed, rubbing the back of his head, "those who entered the dungeon were the ones who didn't forget. Everyone else we mentioned this to did."
+"That's not important," Shigaraki said, "What's important is who Midoriya wants."
+"No, no," Hawks shook his head, "The last thing he needs is more pressure. Give him some fucking time to rest-"
+The door opened, and Midoriya, looking a little worse for wear came out. Hair sticking out from every angle, Midoriya looked exhausted. He hobbled out of the room and leaned against the wall. Yagi, probably in an attempt to catch him if he fell, shot up in his seat, but Midoriya's voice trembled when he spoke.
+"It wasn't a dream, was it?" he asked. "The dungeon's cleared, but nothing changed, did it?"
+"...Midoriya..."
+"She's not... She's not coming back, is she?"
+His legs gave out underneath him.
+"And everyone remembers what I did to them," he said. His lips broke out into a smile, something that edged on hysteria as his voice trembled and his eyes watered. "Right," he said. "You're right. I need to be ... I need to think about the future-"
+"You need to get some rest," Kan said, standing up.
+But Midoriya didn't seem to hear him.
+"I don't know what to do," he said, "What should I... What do you want? I don't... I can't..." His voice trailed off, his breathing coming fast until he was just trying to gasp and pull air in, but his chest couldn't exhale. Eyes welling with tears, he couldn't exhale or inhale, and his hands shot to his throat. 
+"Shit, that's a panic attack," Aizawa said, standing up. He ran to the kitchen to grab something, while Yamada stood up.
+"Hey there, Listener," he said, raising his hands in what should have been a placating gesture, "It's okay. We won't let anything happen-"
+"I don't-I don't-"
+The presure and the situation probably came too hard for him, because Midoriya tilted to one side and promptly passed out. Catching him before he fell, Kan quickly cradled him against his chest.
+"Right now," he said, "Midoriya needs rest. First and foremost, that is our priority. And if that isn't your priority, then we should take a moment to reconsider the life we want Midoriya to live."
+
+-
+
+Kan lifted the bell up and Midoriya flinched backwards. Looking from Kan to the bell, the student gave a curt nod. His hands came up to his pants, ready to unbutton it, and the man grabbed his hands.
+When Midoriya's confused eyes looked up at him, Kan felt his heart 
+
+### returning a gift
+
+It hit Dabi like a fieght train. He covered his mouth and he bit his lip. Depserate. 
+In the six months they were together, something, someone had pushed Midoriya to become like the rest of them, someone had pushed Midoriya to become desperate. Just like that, Dabi had an answer. The reason why Midoriya was so different, the reason why he could keep his shine and smile so warmly at him was because of one thing.
+Midoriya was not desperate. In all the time, all the close calls, Midoriya had never hit that wallowing amount of desperation that the rest of them were plagued with. 
+Something had made Midoriya desperate. Something made Midoriya desperate, and Dabi didn't even know what it was so that he could ensure that Midoriya never became that desperate again.
+What was the point of them, of him, if Midoriya could still feel desperate, after all?
 
 ### consuming
 
