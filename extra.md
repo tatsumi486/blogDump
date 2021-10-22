@@ -2,29 +2,6 @@
 
 It was a strange thing to forget. The thought that they did forget didn't even occur to them until they were reminded of it. The aggressive, almost violent way that Deku carried himself was as terryfying as it was awe-inspiring.
 
--
-
-
-### backline tanker
-
-Midoriya stared at the spell for a long, long time, and then shook his head.
-"I don't want to dispell it."
-"But you could?" Natsuo asked, staring up at the coffin. "I don't doubt it, I don't think there anything you can't do but..." he looked back at him. "What's up?"
-"...We can break the gem up there," Midoriya said, pointing to the shining crystal closer to the top of the casket. "And that should cut the magic link and kill the boss."
-"Sounds good," Touya said, taking a step back and charging his shot. "Step back."
-Natsuo deployed a shield, Midoriya casted a simple charm, and between the two of them, there would be no debris or lasting curse to hurt them. It would be a perfect clear.
-"I could have done it," Twice mumbled.
-"Maybe if you grow another inch," Touya replied back, a grin on his face as Twice flipped him off.
-
--
-
-"What do you mean that you didn't want to dispell it?" Touya asked as they finished their meal. 
-Midoriya stared at the table in front of him and then shook his head.
-"When you break a [curse] you need to either have the same amount of magic and cast it sooner, or you need double the magic it has at the time you're tying to break it."
-"Uh... so basically you can break any spell that's half what you have," Natsuo said. "You have to be twice as strong as everything else."
-
-
-
 ### knights 
 Ji-ho: sword
 Eun-Hyunh: lance
