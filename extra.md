@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 ### forever spring
 
 Summary 1: On the side of Death Mountain, there lived a pocket of land where a young farmer lived, carefully avoiding his harem of very, very powerful people.
@@ -79,3 +80,11 @@ Tsukauchi felt his throat close up. Thought about a senpai who turned his badge 
 Deku stared back at him, "N-no, I'm fine. And you?"
 
 "I can't get my flames to come," he replied back, "I guess it's the same for you, if you are still here."
+=======
+### villain!deku
+
+"I'm quirkless," Midoriya replied, waving his hand. 
+"You don't want to change that?"
+The young man laughed back, a sounds bright and small like Christmas lights on in the dead of the night. 
+"No way," he said, "I don't want to be invincible."
+>>>>>>> 0a249c117de1d629926525f34c8863f9290f6796
