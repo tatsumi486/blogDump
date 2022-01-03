@@ -1,47 +1,37 @@
-7/16: updating test-report graphs with new dropdown schematics 
+/*
+$.getJSON(url, function (data) {
+  console.log(data[7]);
+  console.log("Data length " + data.length);
+  console.log("Key length " + Object.keys(data).length);
+  for (var key in data) {
+    $("#sampleText").append(" Key: " + key + " : " + data[key]["Voxel Intl"]);
+  }
+});
+*/
 
-Company Test Data:
-Select a job and supplier to see two (2) plots. The first plot will show the data points as submitted. The second plot will show the possible forecast of the selected data points by 10 weeks."), p("NOTE: All data is mock-data without any relation to real values.")
+//call the json file:
+$.ajax({
+    url: url,
+    async: false,
+    dataType: "json",
+    success: function (data) {
+        prod = data;
+    }
+});
 
-Company:
- - Company Production
- - Company Forecast 
- - Company by Region (regional forecast????)
- - Company Comparison
- [depending on state data figure out a way to show heatmap of most productive states??]
+function createSeries(c, prod) {
+    for (var key in prod) {
+        series.push(prod[key][c]);
+    }
+}
 
-Job:
-- Job Names & Forecast
-- Job Comparison
-
-GA:
-- Dashboard
-- Analytics 
-
-#flipbox:
-uiOutput("active_side_2"),
-flipBox(
-  id = "myflipbox2",
-  width = 12,
-  front = div(
-    class = "text-center",
-    h1("Flip on click"),
-    img(
-      src = "https://image.flaticon.com/icons/svg/149/149076.svg",
-      height = "300px", width = "100%" )
-  ),
-  back = div(
-    class = "text-center", height = "300px", width = "100%",
-    h1("Flip on click"), p("More information....")
-  )
-),
-
-
-#flip box:
-output$active_side_2<- renderUI({
-  side <- if (input$myflipbox2) "front" else "back"
-  dashboardBadge(side, color = "blue")
-})
-observeEvent(input$toggle, {
-  updateFlipBox("myflipbox2")
-})
+for (var c in companies) {
+    comp = companies[c];
+    var series = [];
+    createSeries(comp, prod);
+    Object.assign(sampLists, { "name": name, "data": series });
+    //  console.log("name: " + comp);
+    // console.log("data" + series);
+}
+console.log(Object.getOwnPropertyNames(sampLists));
+console.log(sampLists);
