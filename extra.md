@@ -46,12 +46,3 @@ Summary: Modern-Fantasy AU. A long, long time ago, a powerless man went and foug
   - Land of Eternal Night -> ie nightwalkers/people who don't live under the light (our villains). Those who fight monsters are "champions"
 
 "So when the Quirk revolution started, it was a simple thing
-
-
-
-
-https://www.amazon.com/Life-As-We-Knew-Collection/dp/0544542630/ref=sr_1_1?crid=3E2EJVHRL9L6T&keywords=Life+As+We+Knew+It+Series&qid=1641407799&s=books&sprefix=life+as+we+knew+it+series+%2Cstripbooks%2C75&sr=1-1
-
-https://www.amazon.com/Rot-Ruin-Collection-Decay-Flesh/dp/1481430289/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=&sr=
-
-https://www.amazon.com/Charlie-Higson-Collection-Sacrifies-Fallen/dp/6674048844/ref=sr_1_2?keywords=charles+higson&qid=1641407316&sr=8-2 
