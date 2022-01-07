@@ -59,9 +59,83 @@ Summary: Modern-Fantasy AU. A long, long time ago, a powerless man went and foug
 - Midoriya wants to become a Pillar of the World. Savio or whatever. Amassing a group of people who also want to stop the encroaching darkness/apoc
 - also knows that he's gonna die at the end of this. (and become a sacrifice to appease the god and let them all go)
 
+### snowball fight - shigadeku
+
+"We don't have time for this!" Shigaraki snapped back at him. "Aren't you the one that wants to save the world?! Why are you wasting your time here?!"
+
+"It's not a waste."
+
+Shigaraki stared at him and furrowed his eyebrows. "What?!"
+
+"It's not a waste of time."
+
+"You know how long it's going to take for us to even hike up to the top of this shitty mountain? And that's not even talking about if the Demon Lord is actually going to be there."
+
+"Yeah," Midoriya nodded, "It'll still be there."
+
+"The fate of the world!" Shigaraki yelled, "and aren't you the one that made me come all the way out here anyways?!"
+
+Midoriya's smile didn't fade. Even if the world exploded and all the cockroaches died, Shigaraki was certain that Midoriya's smile would still be here too. 
+
+The young man, Hero of the Land, Last Light of Humanity, and the Most Annoying Person that Shigaraki Ever had the Misfortune of Meeting, gave him this gaze. A warm look that made Shigaraki feel like a thousand butterflies were flying about in his chest, and he scowled as he looked away. Augh. Damn Midoriya and his damn green eyes. It wasn't fair. 
+
+Because Shigaraki knew that he didn't effect Midoriya at all. 
+
+"I wanted you to see the world that I did," he said. "You were right. I was born without in a life with an abundance of love and never needed. I was happy, and lived a life full of luxury."
+
+The older man stared back, his eyebrows furrowing, and Midoriya smiled back. 
+
+"That's the world I want to protect. That's why I'm out here. Helping people and talking to them, playing with kids and eating something delicious, it's because I'm a selfish person that wants to be happy."
+
+Shigaraki stared back and then back at the ground.
+
+"That's just bullshit," he grouched back.
+
+"Shiga! Shigggaaaa!"
+
+"Shut up!" he shouted at the damn kids that had found him again.
+
+"Shiga! Let's plaaay!"
+
+"Yeah Shiga," Midoriya said, doing an abysmal job of keeping the smile off his face. "Let's play!"
+
+Shigaraki hissed and cursed and swore vengeance on the whole damn world. And he'd start by chucking these balls of ice and snow at the shrieking children that dared to pull him away from the warmest spring he'd ever experience. 
+
 ### Unforgotten Anger
 
 "Because of you- because of your kind- do you know how we had to live?!" Tensei shouted out, grabbing his shoulders. "Children we had to abandon! Disaster after disaster! Safe zones destroyed in seconds and you- you think that you can fix that? What the hell can you do?"
+
+### known sacrifice
+
+"...Wait, wait, wait," Shigaraki slowly turned around, "You... You're going to die?"
+
+Midoriya arched an eyebrow because, "Everyone dies-"
+
+"You're going to die at the end of this?!" he shouted out. "You're just... You're just going to go and die? For what? These ungrateful shits!"
+
+The young man stared at him and smiled back. "I guess."
+
+"Y-You guess?!" Shigaraki's voice echoed in the room, as though even his voice was slamming against the ground and walls. "You're like what, 15? What the fuck do you even know about the world that you think it's worth dying for-can't there! If we just need a sacrifice-"
+
+"...Do you remember?" Midoriya suddenly asked, cutting his words off, "Back when we first met. You said that you wanted to destroy the world. That if there is a god, you'll kill them too so that you can properly destroy the world yourself. Do you remember?"
+
+Shigaraki scowled. That was like, ancient history. 
+
+"Me too," the young man said, "I wanted the world to end, too. I thought that... That if I couldn't be happy, then it was right that no one else could."
+
+Which was the opposite of what Shigaraki knew of Midoriya, who smiled in the face of doom and never complained no matter how much he struggled. He looked at Midoriya, who stopped their camp at every other turn and corner to escort a caravan or to make sure a kid got home in time for dinner, and felt like everytime he learned something about him, he got even more lost.
+
+"Then, why did you-"
+
+"You looked like you were starting to like it," Midoriya said, "so I wanted to protect it."
+
+Shigaraki stared at him, his shoulders slumping.
+
+"I wanted to protect the world where you smiled."
+
+If it was possible to love someone and hate them in the same heartbeat, than Shigaraki found a pulse of a spring that would never return again. But he couldn't get the words out, and instead, Midoriya would go on. 
+
+
 
 ## elysium
 
@@ -132,6 +206,10 @@ Aizawa's expression stilled, and Midoriya gave a sheepish grin back.
 The warden leaned backwards against the wall, eyes staring at the young man and watching the way he stared at his own fingers.
 
 "And then, here I am, a place with two moons." He rubbed the back of his neck. "Where I'm from, there was one. This whole thing is pretty crazy. No, I think I passed crazy a while back, so why not?" He looked up at the older man, "Why not be crazy a little longer, and get an answer for this?"
+
+The world changed because people pushed the boundaries. It was a big puzzle, just waiting to be found. 
+
+Midoriya smiled up at the warden. 
 
 ### memories
 
