@@ -1,0 +1,20 @@
+{
+    "version": "0.2",
+    "ignorePaths": [],
+    "dictionaryDefinitions": [],
+    "dictionaries": [],
+    "words": [
+        "Aizawa",
+        "Aizawa's",
+        "Dabi",
+        "Dabi's",
+        "Deku",
+        "Deku's",
+        "Enji",
+        "Fatgum",
+        "Ingenium",
+        "Midoriya's"
+    ],
+    "ignoreWords": [],
+    "import": []
+}
