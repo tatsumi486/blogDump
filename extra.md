@@ -159,7 +159,87 @@ And Izuku left with Hawks.
 -
 
 "So why haven't you chosen a mate?"
-Izuku thought really hard about it. This had to be the longest time he had ever gone without getting asked that question. It had been a full 30 hours since the last time he heard it.
+Izuku thought really hard about it. This had to be the longest time he had ever gone without getting asked that question. It had been a full 30 hours since the last time he heard it. A new record, in grisly times. Someone, somewhere, should celebrate.
+"Is it... because they're lacking?"
+"They're not," Izuku said before he knew what he was saying, "In the slightest, lacking. In any way."
+The stranger frowned, like this was an easy puzzle with one definite answer instead of an amalgamation of people with varying opinions, emotions, and states of being. But, what would Izuku know? He was just a silly omega. 
+"Well, if you're looking for someone a little less impressive and more down to earth-"
+And Izuku easily drowned out the rest of the conversation. With the decline of vitamin supplements and the likes, he knew it was time to start hitting the trucks on the bridges a bit further out on the highway. It would have to be a one-and-done, and he could only hope that the weather hadn't ruined the supplies. His nose twitched, and when he rounded the corner, Dabi was there.
+"Izuku," Dabi greeted, not even looking at the man behind him. He tilted his head, a small hum accompanying his little smile as his fingers reached for his hand. "We're done with two of the trucks. We should be ready to go for tomorrow morning."
+Izuku tensed, still unused to the contact of someone who didn't want to hurt him, but he didn't fight it.
+Dabi definitely noticed, but he didn't let go. His hand remained, a firm grip with his rough hands. Izuku, no matter how hard he tried, felt his heart pick up and his body relax. The opposing feelings conflicted, but he was starting to get used to it.
+"So, what? You're just leading them on?"
+And before Izuku could feel insulted, Dabi took a step forward. His hand shot out and grabbed the man by the neck. He choked, and then started to flail about. Dabi's hand started to smoke, eyes narrowed, and Deku wondered if it was easy to manage different temperatures for his hands. The hand holding his wasn't even sweating. He squeezed once.
+"You're cleaning up the mess," Izuku informed.
+"Well, can't have that," Dabi said, dropping the man on the ground. Eyes a frigid blue looked down at him, "You're lucky that there's a witness here I can't hurt."
+And with that, he tugged Izuku behind him.
+
+-
+
+"Before, you would have just left," Dabi mentioned casually. "You would have suddenly, just stopped talking to us and it would have driven me crazy."
+Izuku didn't reply.
+Dabi gave a long sigh, "Fuck, I hate this," he said. Squeezing Izuku's hand, he marched onwards.
+"Then let go."
+Dabi stopped and pulled Izuku's hand so that he would remain behind him. With his face turned away, Izuku had no idea what kind of expression he was making. 
+"Not about this," he said, "but that other thing."
+"Speak clearly."
+"Hope."
+Dabi finally turned around, his expression scrunching up like he smelled something foul.
+"It makes me feel like shit," he said, his other hand coming to his heart, "when I think that I have a chance with you."
+
+
+# favorite color
+
+~20 years since the end of the world?
+deku's an omega from some omega house. when the world ended, he finally saw the blue skies.
+determined to see the world
+
+-
+
+
+"How come no one's mated him? Is there like, something wrong with him?"
+Enji narrowed his eyes, his lips set into a deep scowl, before he sighed. 
+"He hasn't chosen me," Enji replied, "and I'm not some lesser alpha that can't earn my place."
+Hawks' eyes fell to his hands, where several scars dotted his hands and wrist. He raised his eyes, and Enji looked down at his hands.
+"Shameful, isn't it?" he said quietly, "I almost lost my reason several times."
+Hawks, at the moment, didn't think that it was that big of a deal. He's had omegas before, and he never mated any of them. 
+Well, he supposed he could help the big guy out. It looked like Enji treasured this omega dearly.
+Hawks couldn't wait to see what kind of person she was.
+
+-
+
+"Oh my god," Hawks said quietly.
+"Silence," Enji tried.
+Hawks made a motion, "What the fuck?" he said, and then motioned at himself, "what the fuck?"
+"Hawks-"
+"Shit," the blond ran his hand through his hair, "He's so strong!"
+
+-
+
+"The alpha that goes around the world," Deku said, "That's the alpha I'll mate with."
+Twice stared at him, "That... That's it?"
+Deku nodded. "Yeah, I think I'll be okay after that."
+The blond crouched down in front of him.
+"I... I just wanna be with you," he said. "So, that means, it could be me, right? I could-could be yours?"
+the young man stared up at him and smiled, gentle and beautiful in a way that Twice didn't want to wake up without it anymore.
+
+-
+
+"You really think that," and Fatgum pointed at Dabi before he continued, "that garbage can wouldn't try to take someone else's mated omega?"
+Dabi frowned, but didn't refute the fact.
+"Oh god," Yamada said, head in his hands, "what should we do?"
+"We could kill him," Snipe said, in all seriousness. "One less guy to worry about."
+"Are... were you really training to be a hero?"
+"That was then, this is now."
+Present Mic nodded, "...But you know, I don't think I could either."
+Snipe frowned at him. "Could what? Kill Dabi? Leave it to me." He waved his gun for good measure.
+"You would think I'm not in the room or something," Dabi deadpanned.
+"No, I mean," Yamada ran his hand through his hair. "I don't think I'd stop either," he admitted.
+There was a pause.
+"Shit," Snipe said, lowering his gun.
+"Well then, gentlemen of the fellow Trash Association," Dabi said, an arm on either one of them as he grinned, "I'm glad we cleared that up quickly, hm?"
+
+-
 
 
 
