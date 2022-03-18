@@ -29,4 +29,11 @@ Enji peered over, and saw the way Dabi's head leaned on top of Deku's. The way D
 Staring at them, Enji felt a surge of pride.
 Peace, he thought. All their hard work and effort had accumulated to a single moment. Everything they had done, for these 15 minutes. Eventually, it would be more. It would be much more.
 "Let them rest," he said. As long as he they needed to.
-Enji would protect it. 
+Enji would protect it. What he couldn't protect before, what he didn't realize what was important before, he would be certain to protect it now.
+
+-
+
+Deku jumped up to grab the top of the railing, a manuever that he's done before, and swung his legs up. As he did so, the railing creaked and snapped. 
+Oh shit, he thought. 
+Four floors up, the ground looked mighty far from where he was. Right when he thought that, there was a rush of wind and he was watching the railing clatter to the ground.
+"Can't take my eyes off of you for a second," Hawks said, arms tight around Deku, under his arms and around his waist, hoisting the man so that they were eye-level. "Well, it's not near 
