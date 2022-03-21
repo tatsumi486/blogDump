@@ -37,3 +37,54 @@ Deku jumped up to grab the top of the railing, a manuever that he's done before,
 Oh shit, he thought. 
 Four floors up, the ground looked mighty far from where he was. Right when he thought that, there was a rush of wind and he was watching the railing clatter to the ground.
 "Can't take my eyes off of you for a second," Hawks said, arms tight around Deku, under his arms and around his waist, hoisting the man so that they were eye-level. "Well, it's not near 
+
+# kind nightmare
+
+"Shigaraki Tomura," Kurogiri said, and for a guy who was all smoke, he was extrodinarily good at expression his displeasure just by saying Shigaraki's name, "Why is your clothing so tight?"
+And Shigaraki, whose pants were clinging and up to his shins, button broken and ripped open, hoodie a tight crop top that he ripped the back and shoulder of getting it over his chest. Aside from the catcalls he got and some gasps, Shigaraki felt like he was breaking all the wrong laws.
+"Fuck off," he said, walking through.
+"There is a sudden increase of Pro-Heroes in the area, exercise better caution-"
+Shigaraki walked right by him, slamming the door behind him and Kurogiri sighed. Sensei didn't seem particularly interested if Shigaraki could use his quirk or not, explaining that he could have everything and more soon enough, and Kurogiri didn't care if Sensei didn't.
+He stared at his impeccably clean bar, not a speck of dust, since Shigaraki returned with missing fingers. Sensei it was good that he was gaining independence, but according to the day-drama that Kurogiri watched, he knew that a girl must be involved. Was this little friend aware of who he was? What he was trying to do?
+Was she the reason why his recent behavioral patterns had changed?
+Kurogiri needed a little more information, then he would be certain. Surely, Giran would have a good recommendation for a reliable investigator to garner some more information.
+
+>> hires chimera & co? in exchange, Kurogiri covers the cost for Nine's sugery/experiment thing?
+
+-
+
+"Augh, this is such a waste of time," he sighed.
+
+Two days later...
+
+"Kid's got like, ten people coming in and out of his house-"
+"Yeah, but four of them are like his teachers-"
+"And you wouldn't believe-"
+Chimera cut them off, "Which ones?" he asked, remembering the feeling of Midoriya's scarred fingers running through his fur. 
+He paused, and when he didn't get a response, glared at the other two.
+"Well?"
+"...I thought you did stakeouts too," Scissor said. "Shouldn't you know?"
+"It's not like you're one of them, right?"
+There was a pause when Chimera didn't answer.
+"Chimera," Scissor gasped, scandalized but there was a bright gleam in her eyes and a smile starting to stretch her lips. "Should we be expecting a new addition to the team?"
+"Uh," their current youngest hesitated, "He's a literal kid. On his way to being a hero. No?"
+"You don't want to be called "senpai"?"
+And Chimera couldn't wait for Nine to wake up and then whip all of them in gear, because he honest to god was considered it.
+"Well, I guess it wouldn't be so bad."
+
+-
+
+"...I don't know," Midoriya said, "how to take responsibility for my actions. I-I know that I have to face consequences, but I don't... I don't think it'll be enough."
+Dabi laughed, a bitter sound that would hurt much more than his fire could.
+"What a pretty way of saying that you don't want to do anything. You don't know how to, so you don't bother, but you sound like you're putting your best forward, right?"
+
+
+-
+
+"...I feel like we haven't eaten lunch together in a while," Iida explained. "I... I hope everything is okay. And regardless if it is or not, I," he hesitated, and the normally impeccable Iida looked like a teenager, lost and stumbling just like Midoriya did.
+"We just want you to know we are here for you!" Uraraka called out, her hands clenched into fists and a grin on her face.
+
+-
+
+"But you have a teacher!" Monoma shouted, "You have a teacher and even All Might favors you!" His hand came to his hair, tugging at it and he screamed out. "Don't take Kan-sensei from us!"
+And Midoriya had forgotten that it went both ways. The time he took from a villain, ensuring that only one person would be hurt, was the same as the 
