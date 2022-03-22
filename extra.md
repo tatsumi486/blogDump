@@ -76,15 +76,61 @@ And Chimera couldn't wait for Nine to wake up and then whip all of them in gear,
 
 "...I don't know," Midoriya said, "how to take responsibility for my actions. I-I know that I have to face consequences, but I don't... I don't think it'll be enough."
 Dabi laughed, a bitter sound that would hurt much more than his fire could.
-"What a pretty way of saying that you don't want to do anything. You don't know how to, so you don't bother, but you sound like you're putting your best forward, right?"
-
+"What a pretty way of saying that you don't want to do anything. You don't know how to, so you don't bother, but you sound like you're putting your best foot forward, right?" He tilted his head, the wide grin on his face was unnerving as always, but these days, Midoriya din't think that was all. "All you have to do is say you're trying, and that's it! You don't actually have to do anything. I should have been a hero. Then, I really would have gotten away with everything. Who cares about actually working?"
+Midoriya placed his head on the table. 
+"You're right," he said. "It's just talk, isn't it?"
+He gave a hollow laugh.
+"Thank you, Dabi," he said, a smile on his face, "I think I get it now, what I have to do."
+Because Midoriya wanted to be a hero. He wanted to save people with a smile on his face. He wanted to make All Might proud, graduate with a smile on his face with all his friends, and climb the hero-ranking. He wanted to protect someone.
+What Midoriya wanted was easy to prioritize.
+He looked over at the older man, and gave a lopsided grin.
+And Dabi, instead of a mocking grin or a snide comment, frowned as he stared at him.
 
 -
 
 "...I feel like we haven't eaten lunch together in a while," Iida explained. "I... I hope everything is okay. And regardless if it is or not, I," he hesitated, and the normally impeccable Iida looked like a teenager, lost and stumbling just like Midoriya did.
 "We just want you to know we are here for you!" Uraraka called out, her hands clenched into fists and a grin on her face.
+Midoriya felt his back straighten, his eyes shining and he grinned right back.
+"Thank you," he said, breathless. His eyes watered and he scrubbed at his eyes as discreetly as possible. "Thank you, truly."
+Uraraka's gaze turned a little more concerned, as she stepped forward to place a hand on his shoulder.
+"It's okay, Midoriya," she said.
+"We know that you will, well, you have, done the same for us before," Iida said, his smile broad as he stepped closer. "A burden is easier to carry if you split it."
+Midoriya laughed, a watery sound, but he felt like it was like coming home. Not exactly so, but very close.
 
 -
 
 "But you have a teacher!" Monoma shouted, "You have a teacher and even All Might favors you!" His hand came to his hair, tugging at it and he screamed out. "Don't take Kan-sensei from us!"
-And Midoriya had forgotten that it went both ways. The time he took from a villain, ensuring that only one person would be hurt, was the same as the 
+And Midoriya had forgotten that it went both ways. The time he took from a villain, ensuring that only one person would be hurt, was the same as taking the time from a hero, and ensuring that no one would be otherwise saved. 
+Midoriya stared at him for a long moment, but couldn't find his voice. Even if he could, he had nothing to say.
+"Hey!" Hound Dog rounded the corner, "The bell has rung! Get to class!"
+Monoma stared at Midoriya for a moment longer, a dark glare before he stalked off, and Midoriya stared at the empty space for a little bit longer.
+"Honestly," Hound Dog sighed, "I can't believe this. And you all want to be heroes?"
+The words dug deeply into Midoriya's heart, but it didn't hurt as much as it normally did. Midoriya made his way back to his classroom. Aizawa took one look at him and clicked his tongue.
+"Detention, Midoriya," he said, "Don't be late again."
+"Yes sir."
+
+-
+
+Nezu was sharp. Aizawa was aware of that. He looked over Midoriya's performance evaluation. He needed to remain impartial. It wouldn't do Midoriya any good if he cut him any slack. He needed to be treated the same 
+
+# returning a gift
+
+Hejike frowned as he looked at the notebooks, "Is it even worth it?" he asked.
+"Hejike-aniki," Midoriya said, voice quiet and gentle like a kindergarden teacher instead of a yakuza, "I am wanted and unneeded. If I am killed, brutally and cruelly, no one would even notice. I have no quirk or allies."
+He clutched the notebook, soggy and the ink probably had probably all ran together and was worthless now, to his chest. Immediately, his shirt soaked, and Midoriya turned his bitter smile up to him.
+"This is the only way I can survive."
+And Hejike couldn't believe that he and Rappa actually had something in common.
+
+# scenario
+
+"There's no way we can break it-"
+"We can!" Midoriya shouted back. "Magic isn't perfect! It doesn't outweigh physics!"
+"W-what the hell do you-"
+"When you fire arrows, the weight brings it down. From hellflame heat travels up, try as everyone has, this magic-this quirk-whatever they are, they still abide by the laws of our gravity and our physics!" Midoriya yelled back. "There is no such thing as an infinite source of energy! At some point, there has to be-be a level that it can't keep going! There has to be a maximum value to this!"
+Shigaraki stared at him, wide-eyed and Midoriya yelled out.
+"Us too!" he said, reaching his hand out, "This isn't our max potential. And since there is no previous example, then it'll be us! First a case-study, then a coincidence! Third time will be a habit, and by then, the world will see it!"
+Midoriya yelled out, his voice seeming to echo across the field. And as it turned out, hope was a small person who could thaw winter.
+"The winners will be us!"
+Yelling that loudly, there was no way that the enemy couldn't find them. The giant orc seemed to come from nowhere, something larger than a truck as it came in front of them.
+There was a flash of fire, and it was engulfed in an instance. Standing in front of him, Ingenium's arms were tight around Midoriya's body.
+"Alright," he said, "What... what did you have in mind?"
