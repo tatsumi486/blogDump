@@ -11,7 +11,17 @@ And all his anger slipped out of him as his eyes fell to Yamada.
 "...Hey uh... Aizawa," his friend forced this smile on his face, looking up to him and then back down to the ground, "I uh... Sorry for bothering you so early. I-I know you hate being waken up-"
 Aizawa took a step back.
 "Come on, I'm already up anyways."
-
+And as Yamada got his shoes off, and Aizawa poured out some orange juice for the two of them, the words came tumbling out of the blond's mouth before he even knew what he was doing. 
+"I went to Midoriya's place."
+Aizawa froze.
+"And I-I," the blond covered his mouth, "You know, right? About..."
+He didn't know how to phrase it. The things that he saw, the way Midoriya fought, the fear that curled in his heart when he saw an axe swing at Midoriya's head and miss. He covered his face.
+"I don't... I don't even know what to do. Aizawa, what, what did you...how did yuu..." He made several useless gestures, but he couldn't get the words out. He was certain that Aizawa knew, given how strange he had been acting these days. But the reason was something beyond reasonable doubt. "It didn't even feel like a quirk."
+He covered his face, when Aizawa grabbed him by the front.
+"You-" he looked livid, eyes wide and bright, his quirk mixing with his emotions and even without all of that, Yamada came to his apartment already defeated. 
+"What am I supposed to do, Aizawa?" he asked. "Should I turn in my license? Tell-tell Nezu that I-"
+His voice broke and Aizawa gave this long sigh.
+"Aizawa, did you do it too?" he asked quietly, "What... what am I supposed to do now?"
 
 -
 
